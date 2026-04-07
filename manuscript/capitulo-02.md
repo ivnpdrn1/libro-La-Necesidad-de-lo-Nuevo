@@ -1,6 +1,4 @@
-Claro. Continuamos con el mismo tono, profundidad y estilo literario.
 
----
 
 # **Capítulo 2**
 
