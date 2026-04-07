@@ -5,7 +5,7 @@
 
 Mateo no recordaba haber sentido nunca una claridad semejante.
 
-No felicidad.
+No felicidad. 
 No euforia en el sentido simple de la palabra.
 No esa exaltación ingenua que a veces sigue a los triunfos colectivos o a las pequeñas victorias de una causa que logra, por unas horas, parecer invencible.
 
