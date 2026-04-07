@@ -1,400 +1,440 @@
 
+# **Capítulo 2 — La herida inútil **
 
-# **Capítulo 2**
+El dolor estaba ahí.
 
-## **La herida inútil**
+Eso fue lo primero que Gabriel confirmó.
 
-Lucía Torres no había dormido. 
+No había desaparecido.
+No se había vuelto inexistente ni simbólico.
+No era una ilusión.
 
-No era extraño. Dormir, para ella, nunca había sido un acto natural, sino una concesión que el cuerpo hacía cuando ya no podía sostener el peso de la vigilia. Aquella noche, sin embargo, ni siquiera el cansancio había logrado imponerse. Había algo nuevo, algo inquietantemente preciso en la forma en que su mente permanecía despierta: no como una ansiedad difusa, sino como una atención fija, sostenida sobre un punto que todavía no terminaba de revelarse.
+El dolor seguía siendo dolor.
 
-El apartamento estaba en silencio.
+Y, sin embargo, algo en él no cumplía su función.
 
-Las velas que había encendido antes de la medianoche se habían consumido hasta dejar apenas restos de cera endurecida sobre la mesa baja. El aire tenía ese olor leve, dulce y agotado que dejan las cosas que han ardido sin necesidad. Afuera, la lluvia seguía cayendo con la misma persistencia que en otros lugares de la ciudad, pero aquí, detrás de los vidrios gruesos y la altura suficiente, llegaba como un rumor distante, incapaz de interrumpir nada.
+Gabriel ajustó los guantes con un gesto automático antes de acercarse al paciente. Había repetido ese movimiento tantas veces que ya no pertenecía del todo a su voluntad. Era parte del cuerpo. Parte del oficio.
 
-Lucía estaba sentada en el suelo.
+—¿Dónde?
 
-Tenía la espalda apoyada contra el borde del sofá y las piernas extendidas sobre la alfombra. Frente a ella, una mesa de cristal había dejado de ser mesa: los fragmentos rotos estaban esparcidos en un radio irregular, reflejando la luz tenue con una precisión casi ornamental. Había sangre también, aunque ya no corría. Se había secado en pequeñas líneas oscuras que seguían el recorrido de lo que, unas horas antes, había sido un gesto impulsivo y completamente comprensible para ella.
+El hombre, sentado en la camilla, señaló el costado izquierdo.
 
-Extendió el brazo.
+—Aquí.
 
-Observó su muñeca.
+Gabriel presionó con cuidado.
 
-Allí donde recordaba el corte —la piel abierta, la sangre insistente, el breve vértigo de haber ido demasiado lejos o exactamente hasta donde quería— ahora solo quedaba una marca tenue, una línea que podría haber sido cualquier cosa: un rasguño antiguo, una sombra, un error de la memoria.
+El paciente reaccionó.
 
-Pasó el dedo índice sobre ella.
+Un gesto breve. Una contracción limpia.
 
-Nada.
+—Sí duele —dijo.
 
-Ni dolor, ni sensibilidad especial. Solo piel.
-
-Lucía frunció el ceño.
-
-No con miedo todavía. Con desconcierto.
-
-Se inclinó hacia adelante, recogió uno de los fragmentos de vidrio más grandes y lo sostuvo entre los dedos con cuidado. Lo giró apenas, buscando el ángulo donde el filo fuera más evidente. Durante años había aprendido a reconocer esas pequeñas diferencias: dónde la superficie engaña, dónde corta de verdad, dónde apenas raspa. Había en ese conocimiento una forma de control que nunca había logrado alcanzar en otros aspectos de su vida.
-
-Se llevó el vidrio a la muñeca.
-
-Esta vez no dudó.
-
-Presionó.
-
-La piel cedió con la facilidad conocida, la resistencia mínima que precede al corte limpio. La sangre apareció de inmediato, roja, concreta, innegable. Lucía sostuvo el fragmento un segundo más, observando cómo la línea se abría bajo la presión. Luego lo dejó caer.
-
-El vidrio chocó contra el suelo con un sonido breve.
-
-Lucía mantuvo la mirada fija en la herida.
+Gabriel asintió.
 
 Esperó.
 
-No sabía exactamente qué esperaba, pero había algo en ella que exigía confirmación. Una lógica previa que debía cumplirse: el corte, el sangrado, la continuidad del dolor, el tiempo necesario para que el cuerpo comenzara a cerrar, la lenta reparación, la cicatriz. Esa secuencia no era solo biológica. Era una estructura. Un relato mínimo que siempre se repetía.
+Había aprendido a leer el dolor más allá de la palabra. La respiración, el pulso, la forma en que el cuerpo se protege o se expone. El modo en que alguien anticipa el contacto.
 
-La sangre corrió.
+Todo eso seguía ahí.
 
-Luego disminuyó.
+Y aun así…
 
-Luego dejó de expandirse.
+—Respira profundo.
 
-Lucía acercó más la muñeca a sus ojos.
+El hombre lo hizo.
 
-Y lo vio.
+Otra vez.
 
-No como un espectáculo, no como algo evidente para cualquiera, sino como un detalle que solo alguien atento a su propio cuerpo podría notar: los bordes de la piel, separados un instante antes, comenzaban a aproximarse. No de golpe, no con violencia, sino con una determinación silenciosa, como si obedecieran a una orden que no admitía retraso.
+Gabriel repitió la presión.
 
-Lucía no apartó la mirada.
+Misma reacción.
 
-La herida se redujo.
+Mismo dolor.
 
-No desapareció por completo, pero dejó de ser lo que había sido. En cuestión de segundos, la línea abierta se convirtió en una marca cerrada, húmeda, extrañamente ajena a la experiencia inmediata del corte.
+Pero no había consecuencia.
 
-Lucía respiró hondo.
+Ahí estaba el problema.
 
-El aire le llenó los pulmones con una claridad que le resultó insoportable.
+Gabriel retiró la mano.
 
-—No —dijo en voz baja.
+—¿Desde cuándo?
 
-La palabra no tenía dirección. Era apenas una forma de intentar detener algo que ya estaba ocurriendo.
+—Esta mañana.
 
-Se puso de pie.
+—¿Golpe?
 
-Caminó hasta el baño con el paso firme de quien se obliga a no temblar. Encendió la luz. El espejo le devolvió su imagen: el rostro pálido, los ojos abiertos de más, el cabello desordenado cayendo sobre los hombros. Había en su expresión algo que no reconoció de inmediato. No era miedo. Tampoco era sorpresa.
+El hombre dudó.
 
-Era una concentración absoluta.
+—Sí… bueno… sí.
 
-Apoyó ambas manos sobre el lavamanos y volvió a mirar la muñeca.
+No sonaba convincente.
 
-La marca seguía allí, pero no tenía profundidad. No tenía historia.
+No porque mintiera.
 
-Lucía abrió el grifo y dejó correr el agua fría sobre la piel. El líquido arrastró los restos de sangre sin esfuerzo. Bajo el flujo constante, la herida perdió incluso la apariencia de haber existido.
+Porque no importaba lo suficiente.
 
-Cerró el grifo.
+Gabriel lo miró un segundo más.
 
-El silencio volvió a ocupar el espacio.
+—¿Empeoró?
 
-Lucía levantó la vista hacia el espejo.
+—No.
 
-—No —repitió, pero esta vez la palabra sonó distinta.
+—¿Mejoró?
 
-No como negación, sino como resistencia a aceptar una consecuencia.
+El hombre dudó otra vez.
 
-Se inclinó un poco más, acercando el rostro al vidrio.
+—Tampoco.
 
-Durante un momento, la imagen que devolvía el espejo no parecía del todo confiable. Había en ella una continuidad demasiado limpia, una ausencia de marcas que no correspondía con lo que acababa de ocurrir. Lucía se tocó la mejilla, el cuello, los labios. Todo estaba donde debía estar. Todo respondía.
+Gabriel asintió.
 
-Y sin embargo, algo había cambiado.
+Esa respuesta ya no era normal.
 
-No en la superficie. Más abajo.
+Antes, el dolor tenía dirección. Crecía o disminuía. Se volvía señal de algo que avanzaba hacia una resolución.
 
-Se incorporó despacio.
+Ahora… permanecía.
 
-Regresó a la sala.
+No evolucionaba.
 
-El apartamento seguía igual: los fragmentos de vidrio, la cera endurecida, la sangre seca sobre la alfombra. Todo testimoniaba un evento que ya no tenía correlato en su cuerpo. Lucía se quedó de pie en medio de ese espacio, mirando alrededor como si hubiera entrado en una escena que alguien más había dejado preparada para ella.
+No exigía.
 
-Su teléfono vibró sobre la mesa.
+Se sostenía como una presencia que ya no organizaba la conducta.
 
-No se movió de inmediato.
+Gabriel se apartó.
 
-La vibración cesó.
+Revisó la pantalla.
 
-Volvió.
+Nada alarmante.
 
-Lucía caminó hasta el aparato y lo tomó.
+Nada suficiente.
 
-En la pantalla, el nombre de Daniel.
+—Puedes irte —dijo.
 
-Lo observó sin abrir el mensaje.
+El hombre lo miró.
 
-Daniel había sido, durante los últimos meses, una presencia inestable en su vida. No porque fuera inconsistente en sí mismo, sino porque su relación con él dependía de un equilibrio que siempre estaba a punto de romperse. Había momentos de cercanía intensa, casi perfecta, seguidos por retiradas abruptas, explicaciones a medias, silencios que se extendían más de lo necesario. Lucía conocía ese patrón. Lo había vivido antes, con otras personas, con otras versiones de sí misma.
+—¿Seguro?
 
-La diferencia con Daniel era que ella había decidido no tolerarlo más.
+—Sí.
 
-O eso creía.
+El hombre bajó de la camilla sin dificultad.
 
-Abrió el mensaje.
+Demasiada facilidad.
 
-**Necesito tiempo.**
+Tomó su chaqueta.
 
-Lucía dejó caer la mano con el teléfono a un costado del cuerpo.
+—Gracias.
 
-El aire del apartamento se volvió más denso.
+No había alivio en su voz.
 
-—Tiempo —repitió.
+Tampoco preocupación.
 
-La palabra se instaló en la habitación como algo material, casi visible.
+Era otra cosa.
 
-Durante años, el tiempo había sido el aliado de quienes se alejaban de ella. No de manera consciente, no como estrategia explícita, pero sí como mecanismo inevitable: dejar pasar los días, las semanas, permitir que la intensidad se disolviera, que la necesidad se volviera menos urgente, que la memoria perdiera filo. Lucía había visto ese proceso repetirse tantas veces que había terminado por reconocerlo incluso cuando apenas comenzaba.
+Indiferencia funcional.
 
-El tiempo no la había traicionado. Había sido coherente.
+Salió.
 
-Era ella la que no lograba aceptar su lógica.
+Gabriel se quedó mirando la puerta cerrarse.
 
-Miró otra vez su muñeca.
+No era el primer caso.
 
-La piel lisa.
+No era el segundo.
 
-La ausencia de herida.
+Y ya no podía tratarlo como variación.
 
-El tiempo, allí, no había tenido efecto.
+Se quitó los guantes.
 
-No había habido espera, ni proceso, ni cicatriz.
+Los dejó en la bandeja.
 
-Lucía volvió a mirar el mensaje.
+Se apoyó con ambas manos en la mesa y bajó la cabeza un instante.
 
-**Necesito tiempo.**
+El hospital seguía funcionando.
 
-Algo en su interior se desplazó.
+Pero no igual.
 
-No fue un pensamiento claro, ni una decisión formulada. Fue más bien la aparición de una posibilidad que, hasta ese momento, no había existido para ella. Una idea que no pedía permiso, que no necesitaba justificarse todavía.
+---
 
-Se sentó en el borde del sofá.
+En la sala contigua, una mujer lloraba.
 
-Dejó el teléfono sobre la mesa.
+No fuerte.
 
-Apoyó las manos sobre las rodillas y permaneció inmóvil unos segundos, como si estuviera escuchando una voz que no venía de afuera.
+No desbordada.
 
-Luego habló.
+Lloraba como si aún creyera que el llanto debía corresponder a algo claro.
 
-—No —dijo.
+—No entiendo —decía—. No entiendo qué tiene.
 
-Esta vez la palabra tenía dirección.
+Gabriel entró.
 
-Se levantó otra vez.
+El niño estaba sentado en la camilla, con el brazo vendado.
 
-Recogió otro fragmento de vidrio.
+—¿Qué pasó?
 
-Lo sostuvo frente a la luz.
+—Se cayó —dijo la mujer—. Del columpio.
 
-Había algo en ese gesto que ya no era desesperación. Era ensayo.
+Gabriel miró al niño.
 
-Se acercó al cuello.
+—¿Te duele?
 
-No a la muñeca, no a un lugar discreto. Al cuello.
+El niño asintió.
 
-La piel allí era más fina. Más vulnerable.
+—Sí.
 
-Lucía apoyó el vidrio.
+—¿Mucho?
 
-Presionó.
+El niño dudó.
 
-El corte fue inmediato.
+—No sé.
 
-El dolor también.
+Gabriel levantó la venda con cuidado.
 
-Un dolor agudo, limpio, sin ambigüedad.
+La piel estaba abierta.
 
-Lucía cerró los ojos un instante, no para evitarlo, sino para sentirlo mejor.
+No grave.
 
-La sangre descendió con rapidez.
+Pero suficiente.
 
-Abrió los ojos.
+—Esto debería doler más —dijo Gabriel, sin darse cuenta de que lo había dicho en voz alta.
 
-Observó.
+La mujer lo miró.
 
-Esperó.
+—¿Cómo?
 
-La misma secuencia.
+Gabriel negó con la cabeza.
 
-El mismo proceso.
+—Nada.
 
-Los bordes de la piel acercándose.
+Volvió al niño.
 
-La herida cerrándose.
+—¿Te molesta si toco?
 
-Más lento que antes, quizás. O tal vez su atención ahora era más intensa.
+El niño negó.
 
-Lucía no apartó la mirada hasta que el corte dejó de ser una apertura y se convirtió, otra vez, en una marca superficial.
+Gabriel presionó.
 
-Se llevó la mano al cuello.
+Reacción.
 
-Tocó.
+Sí.
 
-Nada.
+Dolor.
 
-Respiró hondo.
+Pero otra vez…
 
-Una vez.
+sin peso.
 
-Dos.
+—¿Quieres irte a casa? —preguntó Gabriel.
 
-Tres.
+El niño lo miró, luego a su madre.
 
-Y entonces, por primera vez desde que había comenzado todo, sonrió.
+—Sí.
 
-No era una sonrisa amplia, ni visible desde lejos. Era una curvatura mínima de los labios, apenas suficiente para alterar la expresión del rostro.
+La madre dudó.
 
-Pero en esa mínima alteración había algo decisivo.
+—¿Está bien?
 
-No era alivio.
+Gabriel sostuvo su mirada.
 
-No era alegría.
+Esa era la pregunta que ya no sabía responder del todo.
 
-Era comprensión.
+No en términos médicos.
 
-Lucía caminó hasta el espejo del baño con una calma nueva.
+En términos reales.
 
-Se miró.
+—Sí —dijo finalmente.
 
-Su rostro.
+Y supo que la palabra había cambiado de significado.
 
-Su cuello intacto.
+---
 
-Sus ojos.
+En el pasillo, dos enfermeros discutían en voz baja.
 
-Había en ellos una luz distinta.
+—No están reaccionando igual.
 
-No más tranquila. Más definida.
+—Sí reaccionan.
 
-—Está bien —dijo en voz baja.
+—No como antes.
 
-No hablaba con nadie más.
+—Es lo mismo.
 
-Volvió a la sala.
+—No lo es.
 
-Se sentó.
+Gabriel pasó entre ellos sin intervenir.
 
-Tomó el teléfono otra vez.
+No porque no tuviera posición.
 
-Abrió la conversación con Daniel.
+Porque no tenía todavía una forma completa.
 
-Escribió.
+---
 
-Borró.
+Entró en la sala de descanso.
 
-Volvió a escribir.
+Se sirvió café.
 
-Se detuvo.
+Lo sostuvo sin beber.
 
-Miró el mensaje recibido una vez más.
+Pensó en la mañana.
 
-**Necesito tiempo.**
+En Mateo.
 
-Lucía apoyó el teléfono sobre la mesa sin responder.
+En el informe que había leído sin darle nombre.
 
-Se reclinó hacia atrás.
+“Caída desde altura significativa. Sin lesión estructural relevante.”
 
-Cerró los ojos.
+La frase seguía ahí.
 
-Y dejó que la idea se asentara completamente.
+Perfecta.
 
-Si el tiempo ya no operaba sobre su cuerpo como antes, si el proceso que convertía una herida en cicatriz había sido reducido a una corrección inmediata, si el deterioro podía ser contenido, revertido, neutralizado…
+Inservible.
 
-Entonces el tiempo, tal como lo había conocido, ya no tenía la misma autoridad.
+El problema no era que el cuerpo no se dañara.
 
-Y si el tiempo perdía autoridad…
+Era que el daño ya no ordenaba.
 
-¿qué pasaba con todo lo demás que dependía de él?
+---
 
-Lucía abrió los ojos.
+Recordó algo que había aprendido hace años, en sus primeros meses de práctica.
 
-La habitación seguía en silencio.
+Un médico mayor le había dicho:
 
-La lluvia, lejana.
+> “El dolor no es solo una señal.
+> Es una estructura.”
 
-Los fragmentos de vidrio, inmóviles.
+En ese momento no lo entendió del todo.
 
-El teléfono, apagado.
+Ahora sí.
 
-Nada había cambiado en apariencia.
+El dolor enseñaba.
 
-Y sin embargo, algo esencial se había desplazado.
+Limitaba.
 
-Lucía tomó una de las velas consumidas y la sostuvo entre los dedos.
+Detenía.
 
-La cera estaba fría.
+Obligaba.
 
-La observó un instante, luego la dejó sobre la mesa.
+Era una frontera.
 
-Se levantó.
+Y esa frontera… se estaba desdibujando.
 
-Caminó hacia la ventana.
+No desapareciendo.
 
-Apoyó la frente contra el vidrio.
+Peor.
 
-Abajo, la ciudad seguía moviéndose dentro de su lógica habitual: autos, luces, personas que iban y venían sin saber que, en algún punto, esa lógica estaba empezando a fallar.
+Volviéndose insuficiente.
 
-Lucía cerró los ojos.
+---
 
-Por primera vez en mucho tiempo, no sintió urgencia.
+Volvió al pasillo.
 
-No sintió que algo se le escapaba.
+Una camilla pasó rápido.
 
-No sintió que debía apresurar nada para no perderlo.
+Una mujer gritó desde una puerta.
 
-El tiempo, esa presión constante, esa amenaza silenciosa que siempre había estado del lado de los otros, parecía haberse retirado.
+Un teléfono sonó sin respuesta.
 
-Y en su lugar, quedaba algo nuevo.
+Todo seguía en movimiento.
 
-Algo que todavía no tenía nombre.
+Pero algo no estaba funcionando.
 
-Lucía abrió los ojos.
+No en la superficie.
+
+Más abajo.
+
+---
+
+Gabriel se detuvo frente a una ventana.
 
 Miró la ciudad.
 
-Y pensó, con una claridad que la sorprendió incluso a ella misma:
+Luces.
+Tráfico.
+Personas cruzando.
 
-**Si el tiempo ya no puede quitarme lo que quiero…
-entonces nadie puede hacerlo.**
+Todo igual.
 
-La idea no la asustó.
+Pero no.
 
-La sostuvo.
+Un hombre cruzó la calle sin mirar.
 
-La dejó crecer.
+Un auto frenó tarde.
 
-Y en ese crecimiento, silencioso y perfecto, comenzó a formarse algo que, más adelante, tendría consecuencias.
+Nadie gritó.
 
-No inmediatas.
+Nadie corrió.
 
-No visibles.
+El momento pasó sin corrección.
 
-Pero inevitables.
+Eso no era normal.
 
-Lucía se apartó de la ventana.
+---
 
-Volvió al centro de la sala.
+Gabriel sintió algo que no era miedo.
 
-Miró los restos del vidrio roto.
+Era una falta.
 
-Se agachó.
+Como si una pieza invisible hubiera sido retirada del sistema.
 
-Recogió uno por uno los fragmentos más grandes.
+Algo pequeño.
 
-Los colocó sobre la mesa con cuidado.
+Pero esencial.
 
-Como si estuviera ordenando instrumentos.
+---
 
-Luego se incorporó.
+Regresó a su estación.
 
-Apagó la luz.
+Abrió un expediente.
 
-Y dejó que la oscuridad volviera a ocupar el apartamento, completa, sin interrupciones, mientras afuera la lluvia seguía cayendo sobre la ciudad con la misma indiferencia que en otros lugares, sobre otras personas que todavía creían que el tiempo seguía siendo lo que había sido siempre.
+No leyó.
 
-Lucía no volvió a intentar dormir.
+No hacía falta.
 
-No lo necesitaba.
+Ya lo sabía.
 
-Ahora tenía algo más importante que entender.
+No era un caso.
 
-Y, por primera vez, no sentía que se le fuera a acabar el tiempo para hacerlo.
+Era un patrón.
+
+---
+
+El dolor seguía ahí.
+
+La herida también.
+
+El cuerpo aún podía romperse.
+
+Pero algo había cambiado en la relación entre esos hechos y lo que producían en las personas.
+
+El dolor ya no detenía igual.
+La herida ya no enseñaba igual.
+El riesgo ya no organizaba igual.
+
+Y eso era más peligroso que cualquier enfermedad.
+
+Porque no atacaba el cuerpo.
+
+Alteraba el comportamiento.
+
+---
+
+Gabriel cerró el expediente.
+
+Apagó la pantalla.
+
+Se quedó sentado un momento más.
+
+En silencio.
+
+No estaba buscando una respuesta.
+
+Estaba intentando aceptar la forma de la pregunta.
+
+---
+
+La herida ya no era inútil.
+
+Seguía siendo real.
+
+Pero había dejado de ser suficiente.
+
+Y en esa insuficiencia…
+
+el mundo empezaba a moverse sin el peso que lo había sostenido siempre.
+
