@@ -1,6 +1,5 @@
 
-
-# **Capítulo 1 — El accidente **
+# **Capítulo 1 — El accidente**
 
 El impacto fue seco.
 
