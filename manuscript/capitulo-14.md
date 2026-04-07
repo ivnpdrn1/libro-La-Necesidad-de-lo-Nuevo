@@ -3,7 +3,7 @@
 
 ## **Lo que no puede soltarse**
 
-Sofía no fue a buscar a Lucía por impulso.
+Sofía no fue a buscar a Lucía por impulso. 
 
 Durante horas intentó convencerse de que no era necesario, de que todavía había margen para dejar que las cosas se acomodaran por sí solas, o al menos para que Gabriel tomara la iniciativa si consideraba que algo en Lucía requería atención inmediata. Pero esa forma de esperar —la espera razonable, prudente, respetuosa— empezaba a parecerle cada vez más parte del mismo problema que trataban de nombrar.
 
