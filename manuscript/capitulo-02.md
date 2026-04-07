@@ -4,7 +4,7 @@
 
 ## **La herida inútil**
 
-Lucía Torres no había dormido.
+Lucía Torres no había dormido. 
 
 No era extraño. Dormir, para ella, nunca había sido un acto natural, sino una concesión que el cuerpo hacía cuando ya no podía sostener el peso de la vigilia. Aquella noche, sin embargo, ni siquiera el cansancio había logrado imponerse. Había algo nuevo, algo inquietantemente preciso en la forma en que su mente permanecía despierta: no como una ansiedad difusa, sino como una atención fija, sostenida sobre un punto que todavía no terminaba de revelarse.
 
