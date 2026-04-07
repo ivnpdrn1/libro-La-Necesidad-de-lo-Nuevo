@@ -1,6 +1,3 @@
-Claro. Aquí tienes el **Capítulo 1** en **estilo literario de novela**, con tono sobrio, humano y filosófico, abriendo la obra desde Gabriel.
-
----
 
 # **Capítulo 1**
 
