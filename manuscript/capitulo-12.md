@@ -4,7 +4,7 @@
 
 La ciudad seguía funcionando.
 
-Ese fue, durante los primeros días, el error más tranquilizador.
+Ese fue, durante los primeros días, el error más tranquilizador. 
 
 Los semáforos continuaban alternando sus colores con la obediencia indiferente de siempre. Los mercados abrían. Los buses pasaban, aunque con retrasos mayores. Los hospitales recibían gente, las escuelas intentaban mantener horarios, las oficinas acumulaban correos, reuniones, firmas y pequeñas urgencias administrativas. Las cafeterías seguían sirviendo café. Los ascensores seguían subiendo y bajando. Los noticieros seguían hablando con el tono dosificado de quien todavía cree que nombrar algo con suficiente prudencia evita que cambie de escala.
 
