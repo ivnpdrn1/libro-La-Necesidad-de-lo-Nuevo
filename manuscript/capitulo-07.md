@@ -1,5 +1,5 @@
 
-# **Capítulo 7 — Gabriel**
+# **Capítulo 7 — Gabriel: El bien insuficiente**
 
 Gabriel no había dejado de hacer su trabajo.
 
