@@ -1,273 +1,427 @@
-# **Capítulo 12**
 
-## **La ciudad sin peso**
+# **Capítulo 12 — La ciudad sin peso**
 
-La ciudad seguía funcionando.
+La ciudad no cambió de un día para otro.
 
-Ese fue, durante los primeros días, el error más tranquilizador. 
+Eso habría sido más fácil de entender.
 
-Los semáforos continuaban alternando sus colores con la obediencia indiferente de siempre. Los mercados abrían. Los buses pasaban, aunque con retrasos mayores. Los hospitales recibían gente, las escuelas intentaban mantener horarios, las oficinas acumulaban correos, reuniones, firmas y pequeñas urgencias administrativas. Las cafeterías seguían sirviendo café. Los ascensores seguían subiendo y bajando. Los noticieros seguían hablando con el tono dosificado de quien todavía cree que nombrar algo con suficiente prudencia evita que cambie de escala.
+No hubo un momento claro en el que alguien pudiera decir que algo había dejado de funcionar. No hubo un evento que obligara a detenerse y reorganizar todo desde cero.
 
-Todo seguía allí.
+Fue más leve.
 
-Y, sin embargo, algo había dejado de obedecer.
+Más constante.
 
-No se veía primero en los grandes eventos, sino en las pequeñas desviaciones de conducta que antes habrían parecido simples imprudencias, fallas de carácter o anomalías personales. El problema no era que la ciudad hubiera estallado. El problema era que estaba empezando a inclinarse.
+Más difícil de señalar.
 
-Una inclinación mínima.
-Una pérdida leve de peso en el centro de cada acto.
-Lo suficiente para que las decisiones empezaran a aterrizar de otro modo sobre los cuerpos, los vínculos y las instituciones.
+---
 
-En la avenida norte, poco antes de las ocho de la mañana, un conductor de reparto cruzó una intersección cuando la luz ya había cambiado a rojo. No lo hizo como quien calcula torpemente una ventaja. Lo hizo con una clase nueva de confianza, casi de fastidio frente a la idea de tener que detenerse por obediencia pura. El automóvil que venía por la transversal lo golpeó en la puerta trasera. El impacto hizo girar ambos vehículos. Durante unos segundos, el tránsito entero quedó inmóvil. Dos personas bajaron de sus autos. Un motociclista se quitó el casco. Una mujer gritó desde la acera. El conductor de reparto salió tambaleando, con el hombro evidentemente dislocado y una herida abierta en la frente.
+Un conductor frenó tarde.
 
-Lo extraño no fue que se pusiera de pie.
+El peatón no se apartó.
 
-Lo extraño fue la velocidad con que la escena dejó de tener la gravedad antigua.
+Se miraron un segundo.
 
-El hombre se tocó la sangre, miró el metal hundido de la puerta y soltó una risa nerviosa, casi ofendida.
+Ninguno dijo nada.
 
-—Estoy bien —dijo.
+El momento pasó.
 
-No lo estaba.
+---
 
-Pero la frase ya no significaba lo que había significado siempre. Antes era una negación precaria, un recurso verbal para amortiguar el miedo mientras el cuerpo todavía no terminaba de revelar el daño. Ahora empezaba a sonar como una apuesta, una espera tácita, una suspensión del juicio verdadero hasta ver cuánto de la consecuencia se corregía sola.
+En un supermercado, una mujer dejó caer un frasco de vidrio.
 
-El otro conductor, todavía pálido, seguía temblando.
+Se rompió.
 
-—No vi—
+El sonido fue suficiente para que varias personas giraran la cabeza.
 
-—Sí, sí —dijo el de reparto, moviendo el brazo como si pudiera convencer al hombro de colocarse otra vez por pura insistencia—. No pasa nada.
+Nadie se movió de inmediato.
 
-No pasa nada.
+La mujer miró el suelo.
 
-La frase se quedó suspendida sobre la intersección con un peso mucho mayor que el accidente mismo.
+Luego siguió caminando.
 
-En urgencias del Hospital San Jerónimo, la doctora Inés Correa llevaba treinta y dos horas durmiendo en fragmentos.
+Alguien pasó alrededor de los restos.
 
-No porque nadie se lo exigiera directamente. Porque el hospital había dejado de operar dentro de tiempos reconocibles. Las camillas seguían entrando. Los monitores seguían sonando. Las enfermeras seguían ordenando nombres, historiales, niveles de prioridad. Pero los algoritmos invisibles de la medicina de emergencia —el cálculo del riesgo, la previsión del deterioro, la lógica del reposo, la duración esperable del miedo— habían empezado a volverse inestables.
+Otro hizo lo mismo.
 
-Inés revisó por tercera vez el expediente de un muchacho de diecisiete años que había llegado con una fractura abierta en la tibia después de lanzarse desde una estructura baja de concreto “para probar”. El dolor seguía ahí. La inflamación también. La corrección del cuerpo no era instantánea, no era limpia, no era una negación mágica de la materia. Pero había una restauración parcial, obstinada, suficientemente veloz como para volver inútil la mitad de sus recomendaciones y suficientemente lenta como para mantener intacto el sufrimiento.
+El vidrio quedó allí unos segundos más de lo habitual.
 
-Eso era lo peor, pensó Inés.
+---
 
-No que la gente dejara de romperse.
-Que siguiera rompiéndose sin aprender del mismo modo.
+En una oficina, una conversación se detuvo a la mitad.
 
-Levantó la vista cuando el muchacho intentó quitarse la vía.
+No por acuerdo.
 
-—No.
+No por conflicto.
 
-Él la miró con la combinación irritante de adolescencia y certeza nueva.
+Simplemente…
 
-—Ya estoy mejor.
+se disolvió.
 
-—No.
+Uno de los dos miró su pantalla.
 
-—De verdad.
+El otro revisó el teléfono.
 
-—No —repitió Inés con un cansancio tan exacto que casi sonó clínico—. Lo que estás es menos asustado.
+Nadie retomó el punto.
 
-El muchacho sonrió como si eso confirmara algo a su favor.
+---
 
-—¿Y?
+En un parque, un niño cayó.
 
-Inés se quedó un instante mirándolo. No porque no tuviera respuesta. Porque empezaba a dudar de que la respuesta todavía tuviera fuerza persuasiva suficiente.
+Se levantó sin llorar.
 
-Detrás de él, dos camilleros intentaban convencer a una mujer de cuarenta años con costillas fisuradas de que no se levantara aún. La mujer insistía en irse a casa porque “si igual se va corrigiendo, prefiero pasar el dolor en mi cama”. En otro cubículo, un hombre con quemaduras leves en ambas manos explicaba con una mezcla de vergüenza y entusiasmo que el accidente había sido “parte de una prueba mal hecha” y preguntaba cuánto tardaría “esta vez” en cerrarse la piel.
+Miró su rodilla.
 
-Los hospitales seguían funcionando.
+Había sangre.
 
-Pero el pacto implícito entre médico y paciente —yo te creo vulnerable, tú aceptas comportarte como alguien que puede empeorar— había empezado a deshacerse.
+No hizo nada.
 
-En un colegio del sur, tres estudiantes de último año se reunieron en el baño de hombres durante el recreo para ver, una vez más, el video ralentizado del repartidor levantándose tras el choque de esa mañana. Uno de ellos lo había editado con música y subtítulos irónicos; otro ya seguía cuatro cuentas dedicadas exclusivamente a recopilar “pruebas”. Hablaban del dolor como se habla de un examen difícil: desagradable, sí, pero no decisivo.
+Siguió corriendo.
 
-—No es que no duele —dijo uno, con la autoridad prestada de quien había absorbido discursos ajenos—. Es que ya no manda.
+---
 
-El más bajo de los tres miró la pantalla y luego la rejilla metálica de ventilación sobre los lavamanos.
+Nada de eso era suficiente.
 
-—¿Y si uno se rompe peor?
+Por separado.
 
-El otro se encogió de hombros.
+---
 
-—Pues se corrige.
+Pero juntos…
 
-El temor todavía existía. Era visible en la tensión del cuello, en la risa demasiado breve, en la forma en que ninguno daba el paso primero. Pero ya no era el mismo temor. Antes, el miedo estaba acompañado por una estructura moral casi automática: no hagas esto, porque puedes perder demasiado. Ahora empezaba a verse desplazado por otra lógica, menos estable y más contagiosa: hazlo una vez, y luego veremos cuánto pesa de verdad.
+empezaban a formar algo.
 
-En una comisaría del centro, dos agentes miraban en una pantalla una sucesión de videos recopilados durante las últimas veinticuatro horas. Personas cruzando barreras policiales como si la desobediencia hubiera dejado de tener el mismo filo. Jóvenes saltando desde alturas ridículas para demostrar algo que no entendían del todo. Riñas donde nadie retrocedía en el momento en que antes el cuerpo habría impuesto prudencia. No era valentía. No era furia pura. Era una disminución en la eficacia del cálculo del daño.
+---
 
-—No les importa nada —dijo el más joven.
+La ciudad seguía operando.
 
-El otro negó.
+Los semáforos cambiaban.
+Los trenes llegaban.
+Las puertas se abrían y cerraban en los horarios correctos.
 
-—Sí les importa. Ese es el problema.
+La estructura estaba intacta.
 
-Señaló la pantalla.
+Pero el comportamiento…
 
-—Solo que ya no les importa igual.
+no del todo.
 
-Ninguno de los dos sabía cómo actuar frente a eso. El repertorio de la autoridad —advertir, intimidar, contener, sancionar— seguía siendo el mismo, pero se apoyaba en una presuposición que comenzaba a fracturarse: que el ciudadano común, ante cierta amenaza proporcional, elegiría no avanzar.
+---
 
-Cuando esa elección deja de ser confiable, la fuerza pública no pierde solo eficacia. Pierde lenguaje.
+Un hombre cruzó en rojo.
 
-A media tarde, un noticiero local transmitió imágenes de Mateo hablando bajo la lluvia dos días antes, y en la parte inferior de la pantalla una barra roja repetía: **“AUTORIDADES EVALÚAN MEDIDAS EXTRAORDINARIAS”**.
+Otro lo siguió.
 
-En una oficina del ministerio, Helena vio el clip sin sonido mientras un asesor le resumía la evolución de las propuestas en discusión. Retención médica condicionada. Restricciones de acceso a ciertas áreas. Coordinación con hospitales. Monitoreo de contenido “de incentivo conductual”. El asesor hablaba con esa rapidez nerviosa de quienes confunden el exceso de términos con el control real.
+Luego otro.
 
-Helena no lo interrumpió.
+Nadie lo señaló.
 
-Sabía algo que los demás todavía intentaban no mirar de frente: ninguna medida iba a parecer proporcional al fenómeno mientras el fenómeno siguiera presentándose como una mezcla de sufrimiento real y desobediencia creciente. El problema del control no era solo técnico. Era ontológico. Había que imponer límites nuevos sobre sujetos cuya relación con el daño ya no coincidía del todo con la arquitectura legal existente.
+El gesto dejó de ser excepción.
 
-Miró otra vez la pantalla.
+---
 
-Mateo, congelado en un gesto de convicción bajo la lluvia, le pareció menos un enemigo que un síntoma exitoso: la primera traducción carismática de una mutación conductual que todavía no tenía nombre oficial.
+En un hospital, un paciente se levantó antes de tiempo.
 
-—¿Doctora? —insistió el asesor.
+Nadie lo detuvo.
 
-Helena apartó por fin la mirada.
+No porque no pudieran.
 
-—Van tarde.
+Porque no parecía necesario.
 
-—Estamos avanzando.
+---
 
-—Van tarde —repitió.
+En una escuela, un profesor hizo una pregunta.
 
-Y volvió a pensar, no sin una incomodidad que no admitía en voz alta, en la pregunta de Sofía. El cuidado. La parte del problema que ningún comité sabría redactar.
+Nadie respondió.
 
-En la fundación, Sofía doblaba cobijas con una lentitud que no provenía del cansancio, sino de la necesidad de que al menos una serie de gestos siguiera respondiendo a un ritmo humano reconocible.
+No por desconocimiento.
 
-Había más gente de la habitual. No necesariamente por hambre. Algunos llegaban buscando conversación, un espacio donde lo que estaba ocurriendo no les exigiera elegir entre la fascinación y el miedo. Otros venían heridos de formas menores: cortes, golpes, esguinces, quemaduras superficiales. Les costaba explicar cómo se habían hecho daño. No porque mintieran siempre, sino porque el motivo real empezaba a parecerles menos razonable apenas intentaban ponerlo en palabras.
+Por falta de impulso.
 
-Un hombre dijo que “se resbaló” reparando una lámpara.
-Una muchacha admitió, tras dudarlo, que había puesto la mano demasiado cerca de una hornilla “solo para ver”.
-Un niño de once años llegó con el labio partido porque, según su abuela, “estaban jugando a no tener miedo”.
+La clase continuó.
 
-Esa frase siguió sonando en la cabeza de Sofía mucho después de que la abuela se fuera.
+Sin ajuste.
 
-Jugando a no tener miedo.
+---
 
-No a ser valientes.
-No a resistir.
-A no tener miedo.
+Los eventos seguían ocurriendo.
 
-Eso era exactamente lo que estaba pasando en la ciudad, pensó. Una pedagogía informal y masiva de la pérdida del temor, sin que existiera todavía ninguna forma madura de asumir lo que debía reemplazarlo.
+Pero no producían el mismo tipo de respuesta.
 
-Gabriel entró a la fundación pasada la mitad de la tarde y se quedó un momento en la puerta, mirando el movimiento interior como si estuviera observando un idioma que aún reconocía y ya no entendía del todo. Sofía lo vio de inmediato. No se acercó. Él tampoco. Esa distancia breve entre ambos ya no tenía nada que ver con afecto. Era respeto ante una evidencia compartida: lo que estaba pasando afuera había entrado también en la lógica del cuidado.
+---
 
-Un joven apoyado contra la pared hablaba con otro sobre un golpe que había recibido la noche anterior.
+Antes, cada acción encontraba una corrección.
 
-—Antes sí me habría quedado quieto —decía—. Ahora qué. Igual vuelve.
+Una resistencia.
 
-Volver.
+Un límite.
 
-También esa palabra había cambiado.
+Algo que devolvía al sistema a su forma.
 
-No volvía la normalidad.
-No volvía la salud en sentido pleno.
-Volvía algo suficiente para que la prudencia perdiera terreno.
+Ahora…
 
-Lucía no salió de su apartamento ese día hasta entrada la noche.
+no siempre.
 
-No necesitó hacerlo.
+---
 
-La ciudad llegaba a ella por el teléfono, por los mensajes, por los videos, por el tono nervioso y fascinado de las voces ajenas. Vio a Mateo en pantalla. Vio discusiones sobre hospitales. Vio adolescentes sonriendo frente a heridas recientes como quien exhibe una entrada a una pertenencia nueva. Pero nada de eso ocupó en ella el centro real de la experiencia.
+Una mujer discutía por teléfono.
 
-El centro seguía siendo Daniel.
+—No puedes hacer eso —decía.
 
-Más exactamente: la nueva estructura de su ausencia.
+Silencio.
 
-Cada hecho de la ciudad parecía confirmarle la misma intuición íntima: el mundo estaba dejando de aceptar que las cosas terminaran con la facilidad anterior. No lo pensaba en términos políticos ni morales. Lo pensaba con la lógica de quien ama deformando ya el contorno del objeto amado: si la pérdida había perdido parte de su autoridad sobre el cuerpo, ¿por qué no habría de perderla también sobre el vínculo?
+—No puedes…
 
-Afuera, la ciudad se inclinaba hacia el ensayo colectivo.
-Adentro, en Lucía, el amor se reorganizaba hacia la permanencia.
+Se detuvo.
 
-En una cafetería universitaria casi vacía, Andrés Montalvo escribía en una libreta mientras a dos mesas de distancia una pareja discutía en voz baja sobre si él “tenía derecho” a irse de viaje en ese momento. La discusión no parecía en principio conectada con el fenómeno. Y, sin embargo, Andrés llevaba horas percibiendo lo mismo: el cambio empezaba a infiltrarse en estructuras que no dependían directamente de la biología, sino del tiempo compartido como base invisible de la ética cotidiana.
+No terminó la frase.
 
-Uno pospone menos el perdón cuando cree que puede perder al otro.
-Uno mide distinto una separación cuando el desgaste parece inevitable.
-Uno cuida de cierta manera cuando sabe que la herida puede quedarse.
+Colgó.
 
-¿Qué ocurre, escribió Andrés, cuando el final deja de organizar de la misma forma el valor del acto?
+Se quedó quieta unos segundos.
 
-No buscaba una respuesta filosófica pura. Las respuestas puras, lo sabía bien, se vuelven obscenas demasiado rápido en contextos donde la gente sangra de verdad. Lo que buscaba era una frase capaz de describir sin embellecer lo que estaba sucediendo en la ciudad entera: una descompensación entre dolor y aprendizaje, entre riesgo y obediencia, entre deseo y límite.
+Luego siguió caminando.
 
-Miró por la ventana.
+---
 
-Dos estudiantes bajaban corriendo una escalera demasiado rápido, riéndose con una energía nueva, no exactamente alegre, pero sí emancipada de algo.
+Un hombre dejó caer su cartera.
 
-Andrés escribió:
+Alguien la vio.
 
-**La ciudad no se ha vuelto inmortal.
-Solo ha empezado a comportarse como si el costo último fuera negociable.**
+No la recogió de inmediato.
 
-Cerró la libreta.
+No por deshonestidad.
 
-Eso bastaba por ahora.
+Por falta de urgencia.
 
-Al anochecer, la lluvia regresó con más decisión.
+---
 
-Las calles brillaron bajo las farolas. Los videos siguieron circulando. Las salas de urgencias siguieron llenándose. Las oficinas gubernamentales siguieron redactando borradores para una conducta que iba por delante del lenguaje del Estado. Las familias siguieron cenando, discutiendo, cuidándose a medias, observándose con una atención nueva, como si cada uno estuviera esperando descubrir si el otro seguía perteneciendo del todo al mundo de antes.
+La ciudad no se volvió más violenta.
 
-Una mujer dejó a su hijo de trece años salir solo aunque regresaba rengueando de un golpe reciente y, por primera vez, no lo siguió con la angustia habitual.
-Un hombre aplazó llamar a su padre lesionado porque “seguro aguanta hasta mañana”.
-Dos amigos, tras una pelea, no se pidieron perdón enseguida porque ninguno sintió la misma urgencia de reparar antes de que fuera tarde.
-Una pareja se acostó espalda contra espalda con la vaga sensación de que incluso el desgaste emocional había dejado de tener el mismo filo final.
+Eso habría sido evidente.
 
-No eran grandes escenas.
+Se volvió más…
 
-Era peor.
+permisiva.
 
-Eran pequeñas alteraciones en el reparto invisible del peso.
+---
 
-Cerca de la medianoche, un apagón parcial dejó sin luz cuatro manzanas del oeste por una combinación de sobrecarga y mala suerte. No hubo pánico. Hubo otra cosa: una demora nueva en la reacción de los cuerpos, como si nadie creyera del todo que la oscuridad debiera todavía imponer el mismo respeto. Algunos salieron a la calle a mirar. Otros se quedaron grabando. Un joven intentó subir a un poste bajo para “ver mejor” y cayó sobre un vehículo estacionado entre las risas alarmadas de sus amigos. Se levantó con el codo abierto y una mueca de dolor.
+Y en esa permisividad…
 
-—No pasa nada —dijo.
+las pequeñas correcciones empezaron a desaparecer.
 
-No pasa nada.
+---
 
-La frase volvió a circular.
+Un auto pasó demasiado rápido.
 
-Se había vuelto una contraseña sin autoridad, un estribillo de transición entre el daño y la espera de su corrección, una forma de suspender el juicio moral sobre lo que todavía dolía pero ya no parecía definitivo.
+Otro no reaccionó.
 
-A esa misma hora, Gabriel salió un momento al patio trasero de la fundación para respirar aire húmedo lejos de las voces. Se quedó bajo el pequeño techo de lámina mirando la oscuridad del callejón. Escuchó una motocicleta pasar demasiado rápido. Después el sonido de una botella rota. Después nada.
+El espacio entre ambos se redujo.
 
-Pensó que la ciudad todavía no estaba rota.
+No ocurrió nada.
 
-Solo había perdido gravedad.
+El momento se absorbió.
 
-Y comprendió que eso podía ser más difícil de enfrentar que el desastre abierto, porque el desastre obliga a actuar; la pérdida gradual de peso, en cambio, invita primero a subestimar.
+---
 
-Dentro, Sofía cerraba cajas.
+En una sala de espera, una mujer con dolor evidente no pidió ayuda.
 
-Más allá, Helena revisaba un borrador de resolución.
+No porque no la necesitara.
 
-En otra parte, Mateo respondía mensajes de grupos que querían organizar “ensayos públicos de resistencia”.
+Porque no la sintió necesaria.
 
-Lucía miraba el teléfono sin escribir.
+---
 
-Andrés releía su frase bajo una lámpara demasiado blanca.
+En una casa, dos personas dejaron de hablar.
 
-Y la ciudad, entera, seguía pareciendo una ciudad.
+No fue una ruptura.
 
-Esa fue la última forma de engaño que conservó.
+No fue una decisión.
 
-Porque todavía había tránsito, hospitales, padres, hijos, semáforos, policías, maestros, oficinistas, vendedores, parejas, heridos y camas. Todavía había rutina. Todavía había lenguaje. Todavía había leyes redactadas para una especie que, en apariencia, seguía siendo la misma.
+Simplemente dejaron de continuar.
 
-Pero en el centro de esa continuidad, algo había comenzado a desprenderse.
+Y nada los obligó a retomarlo.
 
-No el cuerpo del todo.
-No la moral del todo.
-No el amor del todo.
-No la autoridad del todo.
+---
 
-Solo el peso necesario para que cada una de esas cosas mantuviera a las otras en su lugar.
+La ciudad empezó a sostener más cosas en estado intermedio.
 
-Y eso bastaba.
+Ni resueltas.
+Ni rotas.
 
-Porque las ciudades no dejan de obedecer de un día para otro.
-Empiezan por inclinarse.
-Por negociar.
-Por volver relativo lo que ayer parecía evidente.
+Suspendidas.
 
-La ciudad siguió funcionando.
+---
 
-Pero ya no obedecía.
+Eso era lo nuevo.
+
+---
+
+Antes, el tiempo organizaba.
+
+Si algo no se resolvía, tendía a romperse.
+
+Si se rompía, obligaba a recomponer.
+
+Ahora…
+
+no siempre.
+
+---
+
+El sistema no colapsaba.
+
+Seguía funcionando.
+
+Pero acumulando pequeñas desviaciones que no encontraban corrección inmediata.
+
+---
+
+Un trabajador llegó tarde.
+
+Nadie lo señaló.
+
+Al día siguiente, volvió a hacerlo.
+
+Nada cambió.
+
+---
+
+Un error en una cuenta no se corrigió.
+
+Se dejó.
+
+Luego otro.
+
+Y otro.
+
+---
+
+Nada grave.
+
+Nada definitivo.
+
+Pero suficiente para alterar la forma.
+
+---
+
+La ciudad no perdió su estructura.
+
+Perdió su peso.
+
+---
+
+Y sin peso…
+
+las decisiones dejaron de asentarse con la misma fuerza.
+
+---
+
+Las personas seguían sintiendo.
+
+Pero no siempre actuaban en consecuencia.
+
+Seguían viendo.
+
+Pero no siempre reaccionaban.
+
+Seguían sabiendo.
+
+Pero no siempre corregían.
+
+---
+
+Eso era lo más difícil de detectar.
+
+Porque no era ausencia.
+
+Era insuficiencia.
+
+---
+
+Una ambulancia pasó.
+
+La sirena sonó.
+
+Los autos se movieron.
+
+No todos.
+
+No lo suficiente.
+
+El vehículo avanzó igual.
+
+---
+
+En una esquina, alguien gritó.
+
+No fue ignorado.
+
+Pero tampoco generó una respuesta clara.
+
+El sonido se disolvió en el aire.
+
+---
+
+La ciudad no se rompía.
+
+Se desajustaba.
+
+---
+
+Y ese desajuste no era visible en grandes eventos.
+
+Era acumulativo.
+
+Pequeño.
+
+Persistente.
+
+---
+
+Hasta que empezaba a sentirse.
+
+---
+
+No como alarma.
+
+Como incomodidad.
+
+---
+
+Algo que no encajaba del todo.
+
+Algo que no terminaba de corregirse.
+
+Algo que seguía…
+
+sin resolverse.
+
+---
+
+Y en esa continuidad sin resolución…
+
+la ciudad empezaba a parecerse a algo que nunca había sido antes.
+
+---
+
+No un sistema estable.
+
+No un sistema en crisis.
+
+---
+
+Un sistema que ya no sabía con precisión suficiente cuándo debía detenerse.
+
+---
+
+Y cuando un sistema deja de detenerse…
+
+no se desordena de inmediato.
+
+---
+
+Se desliza.
+
+---
+
+Y ese deslizamiento, silencioso y constante, era lo que nadie podía todavía nombrar con claridad…
+
+pero todos empezaban a habitar sin darse cuenta.
