@@ -1,5 +1,5 @@
 
-# **Capítulo 6 — Sofía**
+# **Capítulo 6 — Sofía: El cuidado**
 
 Sofía lo notó antes de poder explicarlo.
 
