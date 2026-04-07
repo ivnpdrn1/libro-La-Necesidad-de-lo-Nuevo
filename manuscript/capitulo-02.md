@@ -1,4 +1,5 @@
 
+
 # **Capítulo 2 — La herida inútil **
 
 El dolor estaba ahí.
