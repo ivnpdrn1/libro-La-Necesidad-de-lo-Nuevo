@@ -1,602 +1,459 @@
 
-# **Capítulo 6**
+# **Capítulo 6 — Sofía**
 
-## **Lo que Sofía vio**
+Sofía lo notó antes de poder explicarlo.
 
-Sofía Varela había aprendido a notar lo que no se decía.
+No en una idea.
+En un gesto.
 
-No era una habilidad que hubiera buscado desarrollar. No era técnica, ni deliberada, ni consciente en su origen. Había surgido con el tiempo, de forma inevitable, como consecuencia de haber vivido demasiado cerca de personas que no podían permitirse decirlo todo. Personas que ocultaban dolor por vergüenza, por orgullo o simplemente porque no tenían palabras suficientes para nombrarlo.
+Una mujer entró a la fundación con el brazo vendado y una expresión que no correspondía del todo al estado de la herida. No parecía grave. Tampoco leve. Era… insuficiente.
 
-En la fundación, esa capacidad era más útil que cualquier protocolo.
+—Siéntate —dijo Sofía.
 
-Había días en que alguien entraba por la puerta y decía que necesitaba comida, pero lo que en realidad necesitaba era quedarse un rato sin ser interrogado. Otros pedían ayuda médica y lo que buscaban era que alguien les hablara sin prisa. Algunos no pedían nada, y sin embargo eran los que más urgencia tenían.
+La mujer obedeció.
 
-Sofía no resolvía todos esos casos.
+No con urgencia.
 
-Nadie podía hacerlo.
-
-Pero sabía distinguir entre lo que las personas decían y lo que sostenían debajo de esas palabras.
-
-Esa mañana, al abrir la fundación, sintió algo que no había sentido antes.
-
-No era una sensación clara.
-
-Era más bien una variación mínima en el ambiente, como si el aire tuviera una densidad distinta. No era desagradable. No era evidente. Pero estaba allí, interfiriendo levemente con la normalidad de los gestos.
-
-Encendió las luces.
-
-Dejó su bolso sobre el escritorio.
-
-Revisó la lista de pendientes.
-
-Todo estaba en orden.
-
-Eso era lo extraño.
-
-La rutina no había cambiado.
-
-Y sin embargo, algo en la forma en que la percibía sí.
-
-Se acercó a la mesa donde organizaban las donaciones.
-
-Había cajas abiertas, alimentos clasificados, medicamentos ordenados por fecha.
-
-Tomó una de las listas.
-
-La leyó.
-
-La volvió a dejar.
-
-No era la lista.
-
-Era ella.
-
-O algo que pasaba a través de ella.
-
-Se giró al escuchar la puerta.
-
-Una mujer entró, cargando una bolsa de plástico.
-
-Sofía la reconoció.
-
-Había venido otras veces.
-
-Siempre con la misma expresión: una mezcla de cansancio y determinación que no terminaba de romperse.
-
-—Buenos días —dijo Sofía.
-
-—Buenos —respondió la mujer, sin levantar mucho la voz.
-
-Se acercó.
-
-Dejó la bolsa sobre la mesa.
-
-—Es poco —añadió—. Pero…
-
-Sofía negó suavemente.
-
-—No es poco.
-
-La mujer asintió.
-
-No sonrió.
-
-Se quedó unos segundos más, como si quisiera decir algo adicional.
-
-No lo hizo.
-
-Se fue.
-
-Sofía la siguió con la mirada hasta que la puerta se cerró.
-
-Ese tipo de intercambio era habitual.
-
-Y sin embargo, algo en él había sido distinto.
-
-No en la mujer.
-
-En la forma en que el gesto había quedado suspendido.
-
-Como si no terminara de asentarse.
-
-Sofía volvió a la mesa.
-
-Abrió la bolsa.
-
-Comida básica.
-
-Enlatados.
-
-Pan.
-
-Nada fuera de lo común.
-
-Lo organizó sin prisa.
-
-Pero mientras lo hacía, notó algo que la obligó a detenerse.
-
-No en la acción.
-
-En la sensación.
-
-No había urgencia.
-
-No en ella.
-
-No en el espacio.
-
-No en el aire.
-
-Eso no era normal.
-
-La urgencia no siempre era visible, pero siempre estaba.
-
-En la forma en que alguien extendía la mano.
-
-En la velocidad con que se organizaban las cosas.
-
-En la tensión silenciosa que acompañaba cada decisión.
-
-Aquí, esa tensión no estaba.
-
-Sofía frunció el ceño.
-
-No porque entendiera lo que ocurría.
-
-Porque lo percibía.
-
-Se giró hacia la puerta cuando volvió a abrirse.
-
-Gabriel entró.
-
-Más tarde de lo habitual.
-
-Sofía lo miró de inmediato.
-
-No por la hora.
-
-Por la forma.
-
-Había algo en su manera de caminar que no encajaba.
-
-No era debilidad.
-
-No era dolor.
-
-Era una ligera desconexión.
-
-Como si el cuerpo respondiera, pero la intención estuviera un paso detrás.
-
-—Llegas tarde —dijo Sofía.
-
-Gabriel asintió.
-
-—Sí.
-
-Se acercó.
-
-Dejó las llaves.
-
-Se quedó de pie.
-
-No hizo nada más.
-
-Eso también era extraño.
-
-Normalmente, al entrar, tomaba una tarea.
-
-Revisaba algo.
-
-Preguntaba.
-
-Se movía.
-
-Ahora no.
-
-Sofía lo observó.
-
-No de forma evidente.
-
-Con esa atención lateral que había aprendido a usar para no incomodar.
-
-—¿Estás bien? —preguntó.
-
-Gabriel tardó en responder.
-
-—Sí.
-
-La respuesta no era falsa.
-
-Pero tampoco era suficiente.
+Con normalidad.
 
 Sofía se acercó.
 
-Lo miró más de cerca.
+—¿Qué pasó?
 
-Había marcas en su rostro.
+—Me caí.
 
-No profundas.
+La respuesta llegó rápido.
 
-Pero recientes.
+Demasiado.
 
-—Te pasó algo —dijo.
+Sofía tomó una silla y se sentó frente a ella.
 
-No era una pregunta.
+—¿Dónde?
 
-Gabriel la miró.
-
-No intentó negarlo.
-
-—Un accidente.
+—En la casa. Bajando las escaleras.
 
 Sofía asintió.
 
-Eso explicaba la superficie.
+Observó el vendaje.
 
-No el resto.
+Limpio.
 
-—¿Y?
+Reciente.
 
-Gabriel dudó.
+—¿Dolor?
 
-Un segundo.
-
-Dos.
-
-—Estoy bien —repitió.
-
-Sofía sostuvo la mirada.
-
-No insistió.
-
-Sabía que hay cosas que no se extraen con preguntas.
-
-Se dejó caer en la silla.
-
-Gabriel se sentó frente a ella.
-
-El silencio entre ambos no era incómodo.
-
-Pero tampoco era el mismo de siempre.
-
-Había algo en él.
-
-Una leve pérdida de presión.
-
-Como si el tiempo, en ese espacio, no estuviera operando con la misma intensidad.
-
-Sofía apoyó los brazos sobre la mesa.
-
-—¿Te duele? —preguntó.
-
-Gabriel negó.
-
-—No.
-
-Eso sí era extraño.
-
-Sofía lo sabía.
-
-Un accidente como el que él insinuaba debía dejar dolor.
-
-Mucho.
-
-No ausencia.
-
-—Debería —dijo ella.
-
-Gabriel la miró.
-
-No respondió.
-
-Sofía inclinó ligeramente la cabeza.
-
-—No te duele —repitió—. Y eso no es normal.
-
-Gabriel bajó la mirada.
-
-—Nada es muy normal hoy.
-
-La frase quedó en el aire.
-
-Sofía la recogió.
-
-No en su contenido.
-
-En su tono.
-
-Había en él algo que no estaba antes.
-
-No era alivio.
-
-No era miedo.
-
-Era una especie de suspensión.
-
-Como si la consecuencia de algo hubiera sido retirada.
-
-La puerta se abrió otra vez.
-
-Un hombre entró.
-
-Cojeando.
-
-Sofía lo reconoció.
-
-Había venido días antes con una herida en la pierna.
-
-Había sido grave.
-
-Lo habían enviado al hospital.
-
-Se suponía que necesitaría semanas de recuperación.
-
-Ahora caminaba.
-
-No bien.
-
-Pero caminaba.
-
-Sofía se puso de pie.
-
-—¿Qué haces aquí? —preguntó.
-
-El hombre sonrió.
-
-—Mejor.
-
-Levantó el pantalón.
-
-La herida estaba allí.
-
-Pero no como debía estar.
-
-No abierta.
-
-No infectada.
-
-Cerrada.
-
-Demasiado pronto.
-
-Sofía no dijo nada.
-
-Se acercó.
-
-Observó.
-
-El tejido.
-
-La piel.
-
-La ausencia de proceso.
-
-—¿Cuándo? —preguntó.
-
-—Anoche —respondió él—. Se cerró.
-
-Lo dijo sin énfasis.
-
-Como quien describe algo que no entiende pero no considera urgente explicar.
-
-Sofía lo miró.
-
-Luego miró a Gabriel.
-
-Gabriel estaba observando la escena con una atención distinta.
-
-No sorprendido.
-
-Confirmando.
-
-Eso fue lo que Sofía vio.
-
-No el fenómeno.
-
-La reacción.
-
-No la herida cerrándose.
-
-La forma en que dejaba de importar.
-
-El hombre se sentó.
-
-—¿Tienen café? —preguntó.
-
-Sofía asintió.
+La mujer dudó.
 
 —Sí.
 
-Fue hacia la cocina.
+—¿Mucho?
 
-Preparó el café.
+—No sé.
 
-Volvió.
+Sofía sostuvo la mirada.
 
-Se lo entregó.
+Esa respuesta ya no era común.
 
-El hombre lo tomó.
+No porque fuera imposible.
 
-Bebió.
+Porque no orientaba.
 
-No mencionó la herida.
+—Déjame ver —dijo.
 
-No preguntó.
+La mujer extendió el brazo.
 
-No expresó nada.
+Sofía retiró la venda con cuidado.
 
-Eso no era normal.
+La piel estaba inflamada. Había una línea irregular donde el impacto había abierto la superficie lo suficiente para exigir atención.
 
-No en ese contexto.
+Nada crítico.
 
-No en esa historia.
+Pero suficiente para detener a alguien.
 
-Sofía volvió a sentarse.
+Antes.
 
-Miró la mesa.
+Sofía presionó suavemente.
 
-Las manos.
+La mujer reaccionó.
 
-Los objetos.
+—Sí duele.
 
-Todo estaba en su lugar.
+Sofía esperó.
 
-Y sin embargo, algo había dejado de sostenerse.
+Nada más.
 
-No era visible.
+No había retirada del brazo.
+No había tensión acumulada.
+No había esa defensa automática que aparece cuando el cuerpo entiende que debe protegerse.
 
-Pero era claro.
+Sofía volvió a cubrir la herida.
 
-La urgencia no estaba.
+—¿Has descansado?
 
-No en él.
+La mujer negó.
 
-No en Gabriel.
+—No hacía falta.
 
-No en el espacio.
+Sofía no respondió de inmediato.
 
-Sofía respiró hondo.
+—Debería doler más —dijo finalmente.
 
-Sintió el aire entrar.
+La mujer la miró.
 
-Salir.
+No ofendida.
 
-Todo funcionaba.
+Confundida.
 
-Y sin embargo…
+—¿Eso es bueno o malo?
 
-—Gabriel —dijo.
+Sofía dudó.
 
-Él levantó la vista.
+No tenía una respuesta simple.
 
-—Si no podemos perdernos…
+—Depende —dijo.
 
-Se detuvo.
+La mujer asintió.
 
-No porque no supiera cómo continuar.
+No convencida.
 
-Porque la frase necesitaba ser exacta.
+—Estoy bien —añadió, como si eso cerrara la conversación.
 
-—¿qué nos obliga a cuidarnos?
+Sofía no la corrigió.
 
-El silencio que siguió no fue incómodo.
+Sabía que la palabra ya no significaba lo mismo para ambas.
 
-Fue profundo.
+—Vuelve mañana —dijo—. Solo para revisar.
 
-Gabriel no respondió.
+La mujer aceptó sin discutir.
 
-No porque no quisiera.
+Se levantó.
 
-Porque no tenía respuesta.
+Tomó su bolso.
 
-Sofía bajó la mirada.
+—Gracias.
 
-No estaba asustada.
+Se fue.
 
-Todavía no.
+---
 
-Pero había entendido algo que los otros aún no.
+Sofía se quedó un momento más mirando la puerta cerrarse.
 
-No con palabras.
+No era la herida.
 
-Con percepción.
+Era la relación con la herida.
 
-Algo en las personas estaba empezando a desplazarse.
+Antes, el dolor organizaba.
 
-No en lo que hacían.
+Obligaba a detenerse.
 
-En lo que les importaba.
+A cuidar.
 
-Y ese tipo de cambio no hace ruido.
+A pedir ayuda.
 
-No rompe.
+Ahora… no.
 
-No estalla.
+Se había vuelto algo que se podía atravesar sin modificar demasiado el comportamiento.
 
-Se instala.
+Y eso no era fortaleza.
 
-Sofía miró sus manos.
+Era otra cosa.
 
-Las abrió.
+---
 
-Las cerró.
+En la sala contigua, un niño corría.
 
-Todo respondía.
+No debería haber estado corriendo.
 
-Todo funcionaba.
+Tenía una venda en la rodilla, aún fresca, y cada paso abría ligeramente la herida.
 
-Pero la sensación no era la misma.
+—¡Despacio! —dijo Sofía.
 
-Como si el peso de cada gesto hubiera disminuido apenas.
+El niño se detuvo.
 
-Lo suficiente para no notarlo de inmediato.
+No por miedo.
 
-Lo suficiente para cambiarlo todo con el tiempo.
+Por atención momentánea.
 
-Sofía levantó la vista.
+—No pasa nada —respondió.
 
-Miró a Gabriel.
+Sofía se acercó.
 
-Luego al hombre.
+—Sí pasa.
 
-Luego al espacio.
+El niño la miró.
 
-Y por primera vez, sintió algo que no había sentido antes en la fundación.
+—No duele tanto.
 
-No impotencia.
+Sofía se agachó a su altura.
 
-No tristeza.
+—No es solo el dolor.
 
-No cansancio.
+El niño frunció el ceño.
 
-Algo más preciso.
+—Entonces, ¿qué?
 
-Algo más difícil.
+Sofía lo pensó un segundo.
 
-La intuición de que el problema no era lo que estaba ocurriendo con los cuerpos.
+¿Cómo explicar algo que antes no necesitaba explicación?
 
-Sino lo que empezaría a ocurrir con las decisiones.
+—Es… una señal —dijo—. Para que el cuerpo se cuide.
 
-Sofía no dijo nada más.
+El niño miró su rodilla.
+
+Luego volvió a mirarla.
+
+—Pero puedo seguir.
+
+Sofía no discutió.
+
+Esa era precisamente la dificultad.
+
+El niño podía seguir.
+
+Se levantó.
+
+—Ven —dijo—. Vamos a limpiarlo otra vez.
+
+El niño obedeció.
+
+Pero no había urgencia en él.
+
+Ni resistencia.
+
+Solo continuidad.
+
+---
+
+Más tarde, Sofía se sentó en su escritorio.
+
+No tenía pacientes en ese momento.
+
+El silencio le permitió pensar.
+
+Y eso no la tranquilizó.
+
+Recordó la mañana.
+
+La mujer.
+
+El niño.
+
+Otros casos de los días anteriores.
+
+Nada extremo.
+
+Nada que justificara alarma inmediata.
+
+Pero suficiente para formar una tendencia.
+
+El cuidado estaba cambiando.
+
+No porque las personas dejaran de querer cuidarse.
+
+Porque ya no sentían la misma necesidad de hacerlo.
+
+Y eso era más difícil de enfrentar.
+
+---
+
+Sofía tomó una libreta.
+
+No para escribir un informe.
+
+Para ordenar lo que estaba viendo.
+
+No usó términos médicos.
 
 No hacía falta.
 
-Había visto lo suficiente.
+Escribió:
 
-Y lo que había visto no era espectacular.
+**Dolor sin dirección.**
 
-No era evidente.
+Se detuvo.
 
-Era peor.
+Añadió:
 
-Era el comienzo de algo que no necesitaba violencia para avanzar.
+**Herida sin enseñanza.**
 
-Solo tiempo.
+Cerró la libreta.
 
-Y por primera vez, no estaba segura de que el tiempo fuera a ayudar.
+No quería convertirlo en teoría.
 
-Porque si el tiempo dejaba de tener peso…
+Todavía no.
 
-Entonces todo lo que dependía de él empezaba a quedarse sin sostén.
+---
 
-Sofía apoyó las manos sobre la mesa.
+Salió a la calle al final de la tarde.
 
-Se inclinó ligeramente hacia adelante.
+El aire estaba más frío.
 
-Y en ese gesto mínimo, casi invisible, había una resistencia.
+La ciudad seguía igual.
 
-No al fenómeno.
+Y no.
 
-A lo que vendría después.
+Caminó unas cuadras.
 
-Porque había entendido algo que los otros aún no podían ver con claridad:
+Observó.
 
-No es que nadie muera.
+Una mujer cargaba bolsas pesadas sin ajustar el paso.
+Un hombre hablaba por teléfono mientras cruzaba sin mirar.
+Un adolescente se golpeó contra una puerta y siguió caminando sin detenerse.
 
-Es que algo empieza a dejar de importar.
+Nada grave.
 
-Y cuando eso ocurre…
+Nada que, por sí solo, indicara un problema.
 
-lo que se pierde no es el cuerpo.
+Pero juntos…
 
-Es el sentido.
+formaban algo.
+
+---
+
+Sofía se detuvo en una esquina.
+
+Un semáforo en rojo.
+
+Esperó.
+
+No por costumbre.
+
+Por decisión.
+
+A su lado, un hombre cruzó sin mirar.
+
+Un auto frenó.
+
+Nadie reaccionó.
+
+El momento pasó.
+
+Sin corrección.
+
+Sofía sintió una incomodidad precisa.
+
+No por el riesgo.
+
+Por la ausencia de respuesta.
+
+---
+
+Cruzó cuando la luz cambió.
+
+Siguió caminando.
+
+Pensó en algo que no había querido formular con claridad hasta ese momento.
+
+El cuidado no era solo una intención.
+
+Era una estructura.
+
+Dependía de que algo doliera lo suficiente.
+De que algo importara lo suficiente.
+De que algo pudiera perderse de forma clara.
+
+Si eso se debilitaba…
+
+el cuidado no desaparecía.
+
+Se volvía opcional.
+
+Y lo opcional, en situaciones límite, no sostiene a nadie.
+
+---
+
+Sofía llegó a su casa.
+
+Dejó las llaves.
+
+Se sentó sin encender la luz.
+
+El silencio no la calmó.
+
+La obligó a pensar más claro.
+
+No se trataba de corregir heridas.
+
+Ni de tratar síntomas.
+
+Se trataba de algo más profundo.
+
+La relación entre las personas y el límite estaba cambiando.
+
+Y eso afectaba todo.
+
+El cuerpo.
+La decisión.
+El vínculo.
+
+---
+
+Recordó algo que había visto años atrás.
+
+Una madre que no soltaba la mano de su hijo mientras lo suturaban.
+
+No porque fuera necesario.
+
+Porque el dolor lo pedía.
+
+Ese tipo de gesto sostenía más que la intervención.
+
+Ahora…
+
+no estaba segura de que ese gesto apareciera igual.
+
+---
+
+Se levantó.
+
+Caminó hasta la ventana.
+
+Miró la ciudad.
+
+Luces.
+Movimiento.
+Normalidad.
+
+Pero había algo distinto.
+
+Más leve.
+
+Más suelto.
+
+Más peligroso.
+
+---
+
+Sofía apoyó la mano en el vidrio.
+
+Frío.
+
+Real.
+
+Eso no había cambiado.
+
+Todavía había cosas que respondían.
+
+Pero no sabía por cuánto tiempo.
+
+---
+
+Cerró los ojos un instante.
+
+No buscaba una respuesta.
+
+Buscaba claridad.
+
+Cuando los abrió, la idea ya estaba ahí.
+
+No como conclusión.
+
+Como advertencia.
+
+Si el dolor deja de enseñar…
+
+alguien tendrá que recordar lo que significa cuidar.
+
+Y eso…
+
+no siempre ocurre a tiempo.
