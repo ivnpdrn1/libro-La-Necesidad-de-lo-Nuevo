@@ -1,5 +1,5 @@
 
-# **Capítulo 9 — Helena (versión editorial optimizada)**
+# **Capítulo 9 — Helena**
 
 Helena no convocó la reunión de inmediato.
 
