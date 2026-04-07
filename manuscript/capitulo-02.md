@@ -1,6 +1,6 @@
 
 
-# **Capítulo 2 — La herida inútil **
+# **Capítulo 2 — La herida inútil**
 
 El dolor estaba ahí.
 
