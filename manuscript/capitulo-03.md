@@ -1,5 +1,5 @@
 
-# **Capítulo 3 — Helena**
+# **Capítulo 3 — Helena: El control**
 
 Helena no creyó en el informe.
 
