@@ -1,6 +1,3 @@
-Perfecto — aquí tienes **Capítulo 1 en inglés**, no como traducción literal, sino como **versión editorial natural, fluida y publicable**.
-
----
 
 # **Chapter 1 — The Accident**
 
