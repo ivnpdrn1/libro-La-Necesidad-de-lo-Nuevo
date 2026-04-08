@@ -1,85 +1,39 @@
 
-# **Chapter 5 — Andrés: The Problem**
+# **Chapter 5 — Andrés: The Problem (KDP Optimized Version)**
 
 Andrés Montalvo did not watch the video all the way through the first time.
 
-He let it run for a few seconds, then stopped it just before the impact, as if completing it would require accepting something he could not yet organize.
-
-He rewound.
-
-Played it again.
-
-This time he watched until the fall.
-
-Paused.
+He let it run for a few seconds, then stopped it just before the impact, as if completing it would require accepting something he could not yet organize. He rewound and played it again. This time he watched until the fall, then paused.
 
 ---
 
-The body on the ground.
-
-People moving around it.
-
-Voices entering the frame.
-
----
+The body on the ground. People moving around it. Voices entering the frame.
 
 He stopped it again.
-
----
 
 He did not need the rest.
 
 ---
 
-Andrés placed the phone on the table.
+Andrés placed the phone on the table and remained still, as if the image had stayed suspended somewhere outside the screen.
 
-Did not move.
+It was not the fall that unsettled him.
 
-The image remained, somewhere outside the screen.
-
----
-
-It was not the fall.
-
----
-
-It was the absence that followed.
+It was what did not follow.
 
 ---
 
 The classroom was already full when he arrived.
 
-A few minutes late.
+A few minutes late—not unusual, but not accidental. He had watched the video again before leaving, slower this time, looking for something that resisted form.
 
-Not unusual.
-
-But not accidental.
+He placed his folder on the desk and looked at the students. Some were talking, some distracted, some already waiting.
 
 ---
 
-He had watched the video again before leaving.
+He did not speak immediately.
 
-Slower this time.
-
-Looking for something that resisted form.
-
----
-
-He placed his folder on the desk.
-
-Looked at the students.
-
-Some were talking.
-Some distracted.
-Some already waiting.
-
----
-
-Andrés did not speak.
-
----
-
-He rested both hands on the desk.
+Instead, he rested both hands on the desk.
 
 ---
 
@@ -87,7 +41,7 @@ He rested both hands on the desk.
 
 ---
 
-The room reacted immediately.
+The room reacted at once.
 
 —Yes.
 —The fall.
@@ -96,8 +50,6 @@ The room reacted immediately.
 ---
 
 Andrés nodded.
-
----
 
 —What did you see?
 
@@ -110,8 +62,6 @@ A hand went up.
 ---
 
 Andrés shook his head.
-
----
 
 —That’s not what happened.
 
@@ -127,21 +77,17 @@ The student frowned.
 
 ---
 
-Silence.
+Silence followed.
 
 ---
 
-Another voice:
+Another voice asked:
 
 —Then what is it?
 
 ---
 
-Andrés stepped away from the desk.
-
-Slowly.
-
----
+Andrés stepped away from the desk, slowly.
 
 He did not have an answer.
 
@@ -149,7 +95,7 @@ He had a tension.
 
 ---
 
-—Something is missing.
+—Something is missing, he said.
 
 ---
 
@@ -157,11 +103,7 @@ The room held.
 
 ---
 
-—Not from the event.
-
----
-
-He paused.
+—Not from the event, he added, after a pause.
 
 ---
 
@@ -175,11 +117,7 @@ A student leaned forward.
 
 ---
 
-Andrés hesitated.
-
-Not because he didn’t know.
-
-Because saying it too clearly would reduce it.
+Andrés hesitated, not because he didn’t know, but because saying it too clearly would reduce it.
 
 ---
 
@@ -195,21 +133,11 @@ No one wrote that down.
 
 ---
 
-Silence.
+Silence deepened.
 
 ---
 
-—Until now, that relation has been stable enough to guide behavior.
-
----
-
-He looked at them.
-
----
-
-—Not perfectly.
-
-But enough.
+—Until now, that relation has been stable enough to guide behavior, he continued. Not perfectly—but enough.
 
 ---
 
@@ -221,31 +149,23 @@ A voice from the back:
 
 Andrés considered.
 
----
-
 —Not exactly.
 
 ---
 
 He shook his head.
 
----
-
-—Consequence is part of it.
-
-But this is earlier.
+—Consequence is part of it. But this is earlier.
 
 ---
 
-Another student:
+Another student asked:
 
 —Earlier how?
 
 ---
 
 Andrés leaned slightly forward.
-
----
 
 —Before the event.
 
@@ -255,13 +175,11 @@ The room shifted.
 
 ---
 
-—We don’t act based only on rules.
-
-We act based on what we understand will follow.
+—We don’t act based only on rules. We act based on what we understand will follow.
 
 ---
 
-He let that sit.
+He let that settle.
 
 ---
 
@@ -279,8 +197,6 @@ A pause.
 
 He stopped.
 
----
-
 Did not finish.
 
 ---
@@ -293,7 +209,7 @@ No one spoke.
 
 ---
 
-Now they were fully with him.
+Now they were fully attentive.
 
 ---
 
@@ -305,7 +221,7 @@ Silence.
 
 ---
 
-A student said, almost quietly:
+A student said, quietly:
 
 —But he got up.
 
@@ -313,45 +229,27 @@ A student said, almost quietly:
 
 Andrés nodded.
 
----
-
 —Exactly.
 
 ---
 
-No explanation.
+No explanation followed.
 
 ---
 
-The class did not move for a few seconds.
+The class remained still for a few seconds.
+
+Normally, someone would fill the space, ask something, resist.
+
+Now they held it.
 
 ---
 
-That was new.
-
----
-
-Normally, someone would fill the space.
-
-Ask something.
-
-Resist.
-
----
-
-Now…
-
-they held it.
-
----
-
-—So what are you saying? —someone asked.
+—So what are you saying? someone asked.
 
 ---
 
 Andrés looked at him.
-
----
 
 —That something is no longer forcing resolution.
 
@@ -359,27 +257,13 @@ Andrés looked at him.
 
 The student frowned.
 
----
-
 —Resolution of what?
 
 ---
 
-Andrés didn’t answer immediately.
+Andrés took a moment.
 
----
-
-—Of situations.
-
----
-
-He straightened.
-
----
-
-—Of actions.
-
-Of decisions.
+—Of situations. Of actions. Of decisions.
 
 ---
 
@@ -391,61 +275,41 @@ Another student spoke:
 
 Andrés met his eyes.
 
----
-
 —It’s real enough to change behavior.
 
 ---
 
-That was the first point of tension.
-
----
-
-The room shifted again.
+The tension in the room shifted again.
 
 ---
 
 The bell rang.
 
----
-
 No one moved immediately.
 
 ---
 
-That was the second.
+That, too, was new.
 
 ---
 
-Eventually, they stood.
+Eventually they stood, slowly.
 
-Slowly.
-
----
-
-No conclusion.
-
----
+There was no conclusion.
 
 No summary.
-
----
 
 Just continuation.
 
 ---
 
-A student approached him.
-
----
+One student approached him.
 
 —Professor.
 
 ---
 
 Andrés looked up.
-
----
 
 —Is this dangerous?
 
@@ -456,8 +320,6 @@ The question was direct.
 ---
 
 Andrés held it.
-
----
 
 —Yes.
 
@@ -473,55 +335,33 @@ The student waited.
 
 The student frowned.
 
----
-
 —Isn’t that good?
 
 ---
 
 Andrés shook his head.
 
----
-
 —Not always.
 
 ---
 
-The student nodded.
+The student nodded, not fully understanding.
 
-Not fully understanding.
-
----
-
-He left.
+Then he left.
 
 ---
 
-Andrés remained.
-
----
-
-He sat there after the room emptied.
+Andrés remained seated after the room emptied.
 
 Hands resting on the desk.
 
----
+He was no longer thinking in sentences.
 
-He was not thinking in sentences anymore.
-
----
-
-He was trying to hold a shape.
-
----
-
-Something that would collapse if named too quickly.
+He was trying to hold a shape—something that would collapse if named too quickly.
 
 ---
 
 Later, outside, the city confirmed it.
-
----
 
 A man crossed without looking.
 A car reacted late.
@@ -529,33 +369,19 @@ No one intervened.
 
 ---
 
-Two people argued.
+Two people argued on a corner.
 
-The argument stopped.
+The argument ended without resolution—no agreement, no rupture.
 
-Not resolved.
-
-Not escalated.
+It simply… dissolved.
 
 ---
 
-It simply…
-
-ended.
-
----
-
-A child fell.
-
-Got up.
-
-Did not pause.
+A child fell, stood, and continued.
 
 ---
 
 Nothing in those events was extreme.
-
----
 
 That was the problem.
 
@@ -563,11 +389,7 @@ That was the problem.
 
 Andrés stopped walking.
 
----
-
 This was not disorder.
-
----
 
 It was loss of pressure.
 
@@ -581,11 +403,7 @@ structures deform.
 
 He stood there longer than necessary.
 
----
-
 Not observing anymore.
-
----
 
 Recognizing.
 
@@ -593,61 +411,33 @@ Recognizing.
 
 This was not about isolated failures.
 
----
-
 It was about a system that no longer corrected with the same force.
 
 ---
 
 And without that force…
 
----
-
 things did not break.
 
----
-
 They lingered.
-
----
 
 Unfinished.
 
 ---
 
-Andrés felt it then.
+Andrés felt it then—not as fear, but as weight.
 
----
-
-Not as fear.
-
----
-
-As weight.
-
----
-
-Because once seen…
-
-it could not be ignored.
+Because once seen, it could not be ignored.
 
 ---
 
 He resumed walking.
 
----
-
 The city remained.
-
----
 
 But not stable.
 
----
-
 Not unstable either.
-
----
 
 Something in between.
 
@@ -659,75 +449,45 @@ was the most difficult state to sustain.
 
 ---
 
-When he arrived home, he did not sit immediately.
+When he arrived home, he placed his keys on the table and sat down without removing his coat.
 
-He stood in the middle of the room.
-
----
-
-Trying to locate the edge.
-
----
-
-There wasn’t one.
-
----
-
-That was new.
-
----
-
-He picked up his phone.
-
-Opened the video.
-
-Watched it again.
+He took out his phone, opened the video, and watched it fully this time.
 
 ---
 
 The fall.
-
 The impact.
-
-The moment that should have reorganized everything—
-
----
+The moment that should have followed a known path—
 
 and didn’t.
 
 ---
 
-He paused it.
+He paused it there.
+
+Looked at the frame.
 
 ---
 
-Stared at the frame.
+He was not searching for explanation.
+
+He was searching for form.
 
 ---
 
-He wasn’t looking for explanation anymore.
+A way to name what was happening without reducing it.
 
 ---
 
-He was looking for form.
-
----
-
-Something that would hold.
-
----
-
-After a while, he spoke.
-
-Barely audible.
-
----
+After a while, he spoke quietly:
 
 —It’s not the event.
 
 ---
 
-He paused.
+He stopped.
+
+Corrected himself.
 
 ---
 
@@ -735,40 +495,31 @@ He paused.
 
 ---
 
-Silence.
+The silence did not contradict him.
+
+Nor did it confirm him.
+
+But it was enough.
 
 ---
 
-He turned off the screen.
+He turned off the screen and leaned back.
+
+For the first time since watching the video, he did not try to close the thought.
+
+He left it open.
 
 ---
 
-Did not sit.
+Because he understood something his students did not yet:
+
+Not all problems are solved by thinking.
 
 ---
 
-Did not write.
+Some must be followed…
+
+until they force a decision.
 
 ---
 
-He let it remain incomplete.
-
----
-
-Because he understood something now—
-
----
-
-Not all problems require answers.
-
----
-
-Some require time.
-
----
-
-And others…
-
----
-
-require someone to decide before they are ready.
