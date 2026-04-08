@@ -1,5 +1,5 @@
 
-# **Chapter 6 — Sofía: Care (Final Editorial Version)**
+# **Chapter 6 — Sofía: Care**
 
 Sofía noticed it before she could name it.
 
