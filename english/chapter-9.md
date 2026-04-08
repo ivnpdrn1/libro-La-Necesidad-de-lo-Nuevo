@@ -1,5 +1,5 @@
 
-# **Chapter 9 — Helena: The Decision (KDP Optimized Version)**
+# **Chapter 9 — Helena: The Decision**
 
 Helena did not call the meeting immediately.
 
