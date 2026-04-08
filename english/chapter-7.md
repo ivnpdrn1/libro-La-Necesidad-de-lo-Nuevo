@@ -1,5 +1,5 @@
 
-# **Chapter 7 — Gabriel: The Insufficient Good (Final Editorial Version)**
+# **Chapter 7 — Gabriel: The Insufficient Good**
 
 Gabriel had not stopped doing his job.
 
