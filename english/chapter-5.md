@@ -1,5 +1,5 @@
 
-# **Chapter 5 — Andrés: The Problem (Final Editorial Version)**
+# **Chapter 5 — Andrés: The Problem**
 
 Andrés Montalvo did not watch the video all the way through the first time.
 
