@@ -1,5 +1,5 @@
 
-# **Chapter 11 — Gabriel: The Fracture (KDP Optimized Version)**
+# **Chapter 11 — Gabriel: The Fracture**
 
 Gabriel began to hesitate in small things.
 
