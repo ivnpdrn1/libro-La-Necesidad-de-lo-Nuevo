@@ -1,5 +1,5 @@
 
-# **Chapter 8 — Mateo: The Expansion (KDP Optimized Version)**
+# **Chapter 8 — Mateo: The Expansion**
 
 The video no longer belonged to him.
 
