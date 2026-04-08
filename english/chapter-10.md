@@ -1,10 +1,7 @@
 
-
 # **Chapter 10 — Lucía: Love Without Limits**
 
 Lucía did not think she was doing anything wrong.
-
-That was the first thing.
 
 There was no sense of crossing a line, no internal signal demanding correction. What she felt was not excess. It was clarity—uncomfortable, but precise.
 
@@ -16,25 +13,11 @@ It was what she was no longer willing to accept.
 
 Daniel had not responded.
 
-He had read the message. That much was clear. The confirmation was there, silent and definitive.
-
-But there was no reply.
-
-Not immediate.
-
-Not delayed.
-
----
+He had read the message. The confirmation was there, silent and definitive. But there was no reply—neither immediate nor delayed.
 
 Before, that would have been enough.
 
-Silence had weight.
-
-It marked distance.
-
-It indicated direction.
-
----
+Silence had weight. It marked distance. It indicated direction.
 
 Now…
 
@@ -42,31 +25,15 @@ not necessarily.
 
 ---
 
-Lucía set the phone down.
+Lucía set the phone down and did not look at it again for several minutes. Not as discipline, but as a decision.
 
-Did not look at it again for several minutes.
-
-Not as discipline.
-
-As decision.
-
----
-
-She stood.
-
-Walked to the window.
+She stood and walked to the window.
 
 ---
 
 The city continued.
 
-Lights.
-
-Movement.
-
-Structure.
-
----
+Lights. Movement. Structure.
 
 Nothing suggested change.
 
@@ -77,8 +44,6 @@ But she no longer interpreted those signals in the same way.
 ---
 
 She thought about their last conversation.
-
----
 
 It had not been an argument.
 
@@ -113,51 +78,29 @@ Real.
 
 That still held.
 
----
-
 Everything else…
 
 less so.
 
 ---
 
-She returned to the table.
-
-Picked up the phone.
-
-Opened the conversation.
+She returned to the table, picked up the phone, and opened the conversation.
 
 ---
 
-Read her last message.
+She read her last message.
 
----
-
-It was not emotional.
-
-Not excessive.
-
----
+It was not emotional. Not excessive.
 
 It was clear.
 
 ---
 
-And yet—
-
-it had produced nothing.
+And yet it had produced nothing.
 
 ---
 
-Before, silence from the other person would have forced something.
-
-Acceptance.
-
-Withdrawal.
-
-Reorganization.
-
----
+Before, silence from the other person would have forced something—acceptance, withdrawal, reorganization.
 
 Now…
 
@@ -165,13 +108,7 @@ it didn’t.
 
 ---
 
-Lucía began typing.
-
-Stopped.
-
-Deleted.
-
----
+Lucía began typing, then stopped and deleted the words.
 
 A question was not enough.
 
@@ -183,8 +120,6 @@ Short.
 
 Direct.
 
----
-
 Sent.
 
 ---
@@ -193,21 +128,13 @@ Seconds passed.
 
 Then more.
 
----
-
 Nothing.
 
 ---
 
-Lucía placed the phone down again.
-
-Breathed.
-
----
+Lucía placed the phone down again and breathed.
 
 She was not anxious.
-
----
 
 That, too, was new.
 
@@ -215,31 +142,21 @@ That, too, was new.
 
 Waiting had lost weight.
 
----
-
 And that did not comfort her.
 
 ---
 
-She sat.
-
-Closed her eyes briefly.
+She sat and closed her eyes briefly, trying to locate the feeling.
 
 ---
 
-Located the feeling.
-
----
-
-Not abandonment.
+It was not abandonment.
 
 Not loss.
 
 ---
 
-Something in between.
-
----
+It was something in between.
 
 A relationship that had not ended…
 
@@ -253,11 +170,7 @@ That did not make sense.
 
 Lucía opened her eyes.
 
----
-
 If time no longer resolved things…
-
----
 
 why accept that they would end on their own?
 
@@ -265,15 +178,11 @@ why accept that they would end on their own?
 
 The phone vibrated.
 
----
-
 Daniel.
 
 ---
 
 She picked it up.
-
----
 
 “I’m fine. I just need space.”
 
@@ -287,9 +196,7 @@ Too familiar.
 
 Before, it would have been enough.
 
----
-
-Now—
+Now…
 
 it wasn’t.
 
@@ -297,9 +204,7 @@ it wasn’t.
 
 Lucía did not respond immediately.
 
-She stood.
-
-Walked slowly across the apartment.
+She stood and walked slowly across the apartment.
 
 ---
 
@@ -311,19 +216,13 @@ His jacket on the chair.
 
 Nothing had changed.
 
----
-
 And yet everything had.
 
 ---
 
 These objects no longer indicated presence or absence clearly.
 
----
-
 They lingered.
-
----
 
 Like the relationship itself.
 
@@ -349,11 +248,7 @@ This time she did not hesitate.
 
 She remained standing.
 
----
-
 Waiting.
-
----
 
 Not with anxiety.
 
@@ -363,23 +258,15 @@ With attention.
 
 A thought surfaced.
 
----
-
 She was no longer willing to let the relationship dissolve by inertia.
 
----
-
 Not because she couldn’t.
-
----
 
 Because she no longer considered that enough.
 
 ---
 
 The phone vibrated.
-
----
 
 “To think.”
 
@@ -393,15 +280,7 @@ Then again.
 
 Think.
 
----
-
-The word used to have structure.
-
-Process.
-
-Outcome.
-
----
+The word used to have structure—process, outcome.
 
 Now…
 
@@ -423,15 +302,11 @@ Sent.
 
 Silence.
 
----
-
 Longer now.
 
 ---
 
-Lucía placed the phone down.
-
-Sat.
+Lucía placed the phone down and sat.
 
 Hands resting on her knees.
 
@@ -439,35 +314,21 @@ Hands resting on her knees.
 
 She was not angry.
 
----
-
 She was not hurt.
 
 ---
 
-She was…
-
-deciding.
+She was deciding.
 
 ---
 
 The problem was not Daniel.
 
----
-
 It was the structure.
 
 ---
 
-Before, relationships were shaped by forces no one named directly.
-
-Time.
-
-Distance.
-
-Wear.
-
----
+Before, relationships were shaped by forces no one named directly: time, distance, wear.
 
 If one stopped holding, the connection weakened.
 
@@ -477,33 +338,21 @@ If it weakened enough, it ended.
 
 Hard.
 
----
-
 But clear.
 
 ---
 
-Now—
-
----
+Now…
 
 that clarity was gone.
 
 ---
 
-Things could remain suspended.
-
----
-
-Not moving.
-
-Not breaking.
+Things could remain suspended—neither moving nor breaking.
 
 ---
 
 That was not a form of love.
-
----
 
 It was a state of suspension.
 
@@ -515,8 +364,6 @@ The phone vibrated again.
 
 Lucía did not reach for it immediately.
 
----
-
 Then she looked.
 
 ---
@@ -527,15 +374,11 @@ Then she looked.
 
 The response was vague.
 
----
-
 Insufficient.
 
 ---
 
 Before, she would have read it as withdrawal.
-
----
 
 Now…
 
@@ -543,19 +386,13 @@ she wasn’t certain.
 
 ---
 
-Lucía stood.
-
-Walked to the door.
-
----
+Lucía stood and walked to the door.
 
 She did not overthink it.
 
 ---
 
 She took her jacket.
-
----
 
 Left.
 
@@ -569,21 +406,15 @@ The city moved.
 
 She walked toward Daniel’s building.
 
----
-
 Not fast.
 
 Not slow.
-
----
 
 With direction.
 
 ---
 
 This was not impulse.
-
----
 
 It was coherence.
 
@@ -594,8 +425,6 @@ Within the new structure.
 ---
 
 If the limit no longer imposed itself from outside…
-
----
 
 someone had to define it from within.
 
@@ -609,21 +438,13 @@ Looked up.
 
 ---
 
-Windows.
-
-Lights.
-
-Continuity.
+Windows. Lights. Continuity.
 
 ---
 
 She breathed.
 
----
-
 Not searching for an answer.
-
----
 
 For action.
 
@@ -633,11 +454,7 @@ She entered.
 
 Climbed the stairs.
 
----
-
 Not out of urgency.
-
----
 
 Out of clarity.
 
@@ -645,29 +462,19 @@ Out of clarity.
 
 She stopped in front of his door.
 
----
-
 A pause.
 
----
-
 Not long.
-
----
 
 Enough.
 
 ---
 
-She raised her hand.
-
-Knocked.
+She raised her hand and knocked.
 
 ---
 
 The sound was simple.
-
----
 
 Final.
 
@@ -675,21 +482,11 @@ Final.
 
 She waited.
 
----
-
 Movement inside.
 
 ---
 
-Lucía held her gaze on the door.
-
----
-
-Not as someone asking permission.
-
----
-
-As someone who had decided not to withdraw.
+Lucía held her gaze on the door—not as someone asking permission, but as someone who had decided not to withdraw.
 
 ---
 
@@ -713,8 +510,11 @@ The door began to open.
 
 ---
 
-And with it—
+And with it…
+
+something that would not return to its previous form.
 
 ---
 
-something that would not return to its previous form.
+
+You are now extremely close to a **fully polished, Amazon-ready book** 🚀
