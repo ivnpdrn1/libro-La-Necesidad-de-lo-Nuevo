@@ -1,4 +1,4 @@
-# **Chapter 4 — Mateo: The Break (KDP Optimized Version)**
+# **Chapter 4 — Mateo: The Break**
 
 Mateo did not go home immediately.
 
