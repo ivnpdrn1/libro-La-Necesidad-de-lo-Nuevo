@@ -3,29 +3,23 @@
 
 Mateo did not go home immediately.
 
-He walked.
-
-Not with urgency, not with hesitation—just enough movement to confirm what his body seemed unwilling to deny.
+He walked—not with urgency, not with hesitation, but with just enough movement to confirm what his body seemed unwilling to deny.
 
 The city continued.
 
 That was the first confirmation.
 
-Nothing had adjusted itself to what had happened. No invisible mechanism had intervened to restore balance. No pause, no shift in rhythm, no indication that anything required correction.
+---
+
+Nothing had adjusted itself to what had happened. No invisible mechanism had intervened to restore balance. There was no pause, no shift in rhythm, no indication that anything required correction.
 
 Everything held.
 
 ---
 
-He turned a corner.
+He turned a corner and stopped at a crosswalk.
 
-Waited at a crosswalk.
-
-Watched the light change.
-
-Red to green.
-
-Green to red.
+Watched the light change—red to green, green to red.
 
 The system was intact.
 
@@ -47,13 +41,7 @@ Too close.
 
 The driver reacted late.
 
-Mateo felt it.
-
-The proximity.
-
-The possibility.
-
----
+Mateo felt it—the proximity, the possibility.
 
 He did not step back.
 
@@ -83,15 +71,9 @@ Less insistent.
 
 ---
 
-Mateo placed his hand against his side again.
+Mateo placed his hand against his side again and pressed.
 
-Pressed.
-
-There was pain.
-
-Clear.
-
-Localized.
+There was pain—clear, localized.
 
 But it did not structure him.
 
@@ -109,19 +91,13 @@ It interrupted.
 
 It reorganized behavior.
 
----
-
 This did not.
 
 ---
 
-He stopped.
+He stopped and looked at his hand, as if it could confirm something the rest of him could not.
 
-Looked at his hand as if it could confirm something the rest of him could not.
-
----
-
-He pressed harder.
+Then he pressed harder.
 
 ---
 
@@ -137,15 +113,7 @@ Mateo let his hand fall.
 
 ---
 
-A group of people passed behind him.
-
-Someone laughed.
-
-Someone argued.
-
-Someone dropped something, picked it up, continued.
-
----
+A group of people passed behind him—someone laughing, someone arguing, someone dropping something, picking it up, continuing.
 
 The world did not register him.
 
@@ -153,13 +121,7 @@ The world did not register him.
 
 That, too, felt different.
 
----
-
-Not because he expected attention.
-
-But because something in the event demanded weight.
-
-And the world was not providing it.
+Not because he expected attention, but because something in the event demanded weight, and the world was not providing it.
 
 ---
 
@@ -169,11 +131,7 @@ He resumed walking.
 
 At a storefront, he stopped again.
 
-The glass reflected him.
-
-Slightly distorted.
-
-Enough to make the image uncertain.
+The glass reflected him, slightly distorted—enough to make the image uncertain.
 
 ---
 
@@ -187,7 +145,7 @@ There should have been something.
 
 A signal.
 
-A visible marker that confirmed the discontinuity between what had happened and what should have followed.
+A visible marker confirming the discontinuity between what had happened and what should have followed.
 
 ---
 
@@ -195,21 +153,13 @@ There was nothing.
 
 ---
 
-He leaned closer.
-
-Examined his face.
-
-His posture.
-
-The way he stood.
-
----
+He leaned closer, examining his face, his posture, the way he stood.
 
 Normal.
 
 ---
 
-That word no longer fit.
+The word no longer fit.
 
 ---
 
@@ -217,13 +167,7 @@ He straightened.
 
 Stepped back.
 
----
-
-The reflection adjusted.
-
-Followed.
-
-Unquestioned.
+The reflection adjusted without resistance.
 
 ---
 
@@ -231,11 +175,9 @@ Mateo turned away.
 
 ---
 
-He was not looking for injury anymore.
+He was no longer looking for injury.
 
 He was looking for consequence.
-
----
 
 That was harder to find.
 
@@ -243,15 +185,11 @@ That was harder to find.
 
 He walked past a construction site.
 
-Metal structures.
-
-Loose materials.
-
-A barrier that separated movement from risk.
-
----
+Metal structures. Loose materials. A barrier separating movement from risk.
 
 He stopped.
+
+---
 
 Not because he needed to.
 
@@ -260,8 +198,6 @@ Because something in him wanted to test the boundary.
 ---
 
 He stepped closer.
-
----
 
 The barrier remained.
 
@@ -274,8 +210,6 @@ It held.
 ---
 
 The structure was still there.
-
----
 
 But the meaning of the structure…
 
@@ -301,11 +235,7 @@ And what he noticed did not align.
 
 ---
 
-He continued walking until the streets became familiar again.
-
-Until the buildings repeated themselves in ways his memory recognized.
-
-Until the distance between the event and the present narrowed enough to feel manageable.
+He continued walking until the streets became familiar, until the buildings repeated themselves in ways his memory recognized, until the distance between the event and the present narrowed enough to feel manageable.
 
 ---
 
@@ -317,11 +247,7 @@ Did not open it immediately.
 
 ---
 
-He stood there.
-
-Hand on the handle.
-
----
+He stood there, hand on the handle.
 
 Something had followed him.
 
@@ -335,9 +261,7 @@ A question.
 
 ---
 
-He entered.
-
-Closed the door behind him.
+He entered and closed the door behind him.
 
 ---
 
@@ -351,27 +275,15 @@ The same quiet.
 
 ---
 
-Mateo placed his keys on the table.
-
-Listened.
-
----
+Mateo placed his keys on the table and listened.
 
 Nothing responded.
 
 ---
 
-He walked to the kitchen.
+He walked to the kitchen and opened the tap.
 
-Opened the tap.
-
-Water flowed.
-
-Consistent.
-
-Reliable.
-
----
+Water flowed—consistent, reliable.
 
 He watched it for a moment.
 
@@ -383,45 +295,27 @@ That still worked.
 
 He turned it off.
 
----
-
 Silence returned.
 
 ---
 
-Mateo leaned against the counter.
-
-Closed his eyes briefly.
-
----
+Mateo leaned against the counter and closed his eyes briefly.
 
 The fall.
-
 The impact.
-
 The moment after.
 
 ---
 
-It all aligned.
+Everything aligned.
 
-Except for what followed.
-
----
-
-He opened his eyes.
-
-Looked at his hands again.
+Except what followed.
 
 ---
 
-No visible disruption.
+He opened his eyes and looked at his hands again.
 
-No signal.
-
-No demand.
-
----
+No visible disruption. No signal. No demand.
 
 Only presence.
 
@@ -469,16 +363,15 @@ Just a fact.
 
 He stood there longer than necessary.
 
----
-
 Not waiting.
 
 Not deciding.
 
 ---
 
-Trying to understand what it meant…
-
-for something that should have changed everything…
+Trying to understand what it meant for something that should have changed everything…
 
 to change so little.
+
+---
+
