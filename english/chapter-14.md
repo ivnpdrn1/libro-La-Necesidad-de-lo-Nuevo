@@ -1,5 +1,5 @@
 
-# **Chapter 14 — Lucía: The Crossing (KDP Optimized Version)**
+# **Chapter 14 — Lucía: The Crossing**
 
 Daniel opened the door.
 
