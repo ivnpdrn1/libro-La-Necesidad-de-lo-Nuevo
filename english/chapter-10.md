@@ -1,6 +1,6 @@
 
 
-# **Chapter 10 — Lucía: Love Without Limits (Final Editorial Version)**
+# **Chapter 10 — Lucía: Love Without Limits**
 
 Lucía did not think she was doing anything wrong.
 
