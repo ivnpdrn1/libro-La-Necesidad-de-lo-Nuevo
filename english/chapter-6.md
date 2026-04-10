@@ -1,581 +1,96 @@
+Chapter 6 — Care
 
-# **Chapter 6 — Sofía: Care**
-
-Sofía noticed it before she could name it.
-
-Not in a report, but in a gesture.
-
----
-
-A woman walked in with her arm wrapped in a clean bandage and a posture that did not quite correspond to the injury. It was not severe, but it was not minor either.
-
-Something about it was off.
-
----
-
-—Sit, Sofía said.
-
----
-
-The woman did, without urgency.
-
-Sofía pulled a chair and sat in front of her.
-
----
-
-—What happened?
-
-—I fell.
-
----
-
-The answer came too quickly.
-
----
-
-—Where?
-
-—At home. On the stairs.
-
----
-
-Sofía nodded and looked at the bandage. It was recent, carefully done.
-
----
-
-—Pain?
-
----
-
-The woman hesitated.
-
-—Yes.
-
----
-
-—How much?
-
-—I don’t know. It’s there.
-
----
-
-Sofía held her gaze.
-
-That answer did not guide anything.
-
----
-
-—Let me see.
-
----
-
-The woman extended her arm.
-
-Sofía removed the bandage slowly.
-
----
-
-The skin was inflamed. A narrow split marked where the impact had opened it just enough to require attention. Not serious.
-
-But enough.
-
----
-
+Sofía noticed it before she understood it.
+Not as a conclusion, but as a hesitation small delay in the way things responded.
+The first time, she did not question it.
+A patient arrived with a minor injury. Nothing unusual—no fracture, no visible complication. The kind of case that follows a familiar path: assessment, pain, adjustment, rest.
+She moved through it automatically.
+That was her training.
+—Does it hurt?
+The patient nodded.
+—Here?
 She pressed lightly.
-
----
-
-The woman reacted.
-
-—That hurts.
-
----
-
-Sofía waited.
-
----
-
-Nothing followed.
-
-No withdrawal. No protective tension. No adjustment.
-
----
-
-Sofía rewrapped the arm.
-
----
-
-—Have you been resting?
-
----
-
-The woman shook her head.
-
-—Didn’t seem necessary.
-
----
-
-Sofía paused.
-
----
-
-—It should hurt more.
-
----
-
-The woman looked at her.
-
-—Is that good or bad?
-
----
-
-Sofía considered.
-
-—It depends.
-
----
-
-The woman nodded, not convinced.
-
-—I’m fine, she said.
-
----
-
-Sofía did not correct her.
-
-The word had shifted.
-
----
-
-—Come back tomorrow, Sofía said, just to check.
-
----
-
-The woman agreed easily.
-
-Too easily.
-
----
-
-She stood, collected her things, and left.
-
----
-
-Sofía watched the door close.
-
----
-
-It was not the wound.
-
-It was the relation to it.
-
----
-
-Before, pain organized behavior. It interrupted, demanded adjustment, forced care.
-
-Now…
-
-it did not.
-
----
-
-It could be moved through.
-
----
-
-That was different.
-
----
-
-In the next room, a child was running.
-
-He shouldn’t have been.
-
----
-
-A bandage covered his knee, fresh, each step pulling slightly at the edge of the wound.
-
----
-
-—Slow down, Sofía said.
-
----
-
-The child stopped.
-
-Not from fear.
-
-From momentary attention.
-
----
-
-—It’s fine.
-
----
-
-Sofía approached.
-
-—No, it’s not.
-
----
-
-The child looked at her.
-
-—It doesn’t hurt that much.
-
----
-
-Sofía crouched.
-
----
-
-—It’s not just about pain, she said.
-
----
-
-The child frowned.
-
-—Then what?
-
----
-
-Sofía hesitated.
-
-How do you explain something that never needed explanation?
-
----
-
-—It’s a signal, she said. So your body knows to protect itself.
-
----
-
-The child looked at his knee, then back at her.
-
-—But I can keep going.
-
----
-
-Sofía did not argue.
-
-That was the difficulty.
-
-He could.
-
----
-
-She stood.
-
-—Come, she said. Let’s clean it again.
-
----
-
-He followed.
-
-Without resistance.
-
-Without urgency.
-
-Just continuation.
-
----
-
-Later, Sofía sat at her desk.
-
-No patients for the moment.
-
-Silence.
-
----
-
-That did not help.
-
----
-
-She thought of the morning.
-
-The woman. The child. Others from previous days.
-
----
-
-Nothing extreme.
-
-But consistent.
-
----
-
-Care was changing.
-
----
-
-Not because people stopped wanting it.
-
-Because they no longer felt the same need for it.
-
----
-
-And that was harder to address.
-
----
-
-Sofía took a notebook.
-
-Not for a report.
-
-For clarity.
-
----
-
-She wrote:
-
----
-
-**Pain without direction.**
-
----
-
-She paused, then added:
-
----
-
-**Wound without learning.**
-
----
-
-She closed the notebook.
-
-Too soon for theory.
-
----
-
-At the end of the day, she stepped outside.
-
-The air was colder.
-
----
-
-The city remained.
-
----
-
-She walked.
-
-Observed.
-
----
-
-A woman carrying too much weight without adjusting her pace.
-A man crossing while distracted.
-A teenager hitting a doorframe and continuing without pause.
-
----
-
-Nothing alarming.
-
-Individually.
-
----
-
-Together…
-
-something else.
-
----
-
-Sofía stopped at an intersection.
-
-The light was red.
-
-She waited.
-
----
-
-Not out of habit.
-
-Out of decision.
-
----
-
-Next to her, a man crossed anyway.
-
-A car slowed.
-
-Barely.
-
----
-
-No reaction.
-
----
-
+—Yes.
+The response was correct.
+Everything aligned.
+And yet something did not follow.
+The patient stood too quickly and moved without caution.
+Sofía watched.
+—Take it slowly, she said.
+The patient nodded again but did not slow down.
 The moment passed.
-
----
-
-Sofía felt it.
-
-Not as fear.
-
-As absence.
-
----
-
-She crossed when the light changed and continued walking.
-
----
-
-A thought formed.
-
-Care was not just intention.
-
----
-
-It depended on structure.
-
-On something hurting enough.
-On something mattering enough.
-On something being at risk of real loss.
-
----
-
-If that weakened…
-
----
-
-Care did not disappear.
-
-It became optional.
-
----
-
-And optional…
-
-does not hold in critical moments.
-
----
-
-She reached home, placed her keys down, and sat without turning on the lights.
-
-Silence again.
-
----
-
-No relief.
-
-Only clarity.
-
----
-
-This was not about treating injuries.
-
-It was about something deeper.
-
----
-
-The relationship between people and limits was shifting.
-
----
-
-And that affected everything.
-
-The body.
-The decision.
-The bond.
-
----
-
-She remembered something.
-
-Years ago.
-
-A mother holding her child’s hand while he was being stitched.
-
----
-
-Not because it was required.
-
-Because the pain asked for it.
-
----
-
-That gesture sustained more than the procedure.
-
----
-
-Now…
-
----
-
-Sofía was no longer certain it would appear in the same way.
-
----
-
-She stood and walked to the window.
-
----
-
-The city spread out before her.
-
-Lights. Movement. Continuity.
-
----
-
-And something else.
-
----
-
-Lighter.
-
-Looser.
-
-More fragile.
-
----
-
-She placed her hand against the glass.
-
-Cold.
-
-Real.
-
----
-
-Some things still responded.
-
----
-
-But she did not know for how long.
-
----
-
-She closed her eyes briefly.
-
-Not searching.
-
-Aligning.
-
----
-
-When she opened them, the thought was already there.
-
-Not a conclusion.
-
-A warning.
-
----
-
-If pain no longer teaches…
-
----
-
-someone will have to remember what care means.
-
----
-
-And that…
-
----
-
-does not always happen in time.
-
----
-
+Sofía returned to her notes, wrote what was required, and continued.
+Nothing in the report indicated a problem.
+Later that day, it happened again.
+Different patients. Different injuries. Same pattern.
+—Pain?
+—Yes.
+—Does it limit movement?
+A pause.
+—Not really.
+That answer stayed.
+Not because it was incorrect, but because it was incomplete.
+Pain should do more than exist.
+It should guide, interrupt, reorganize behavior.
+This did not.
+Sofía adjusted her position and observed more closely.
+The patient moved normally.
+Too normally.
+—Be careful,” she said.
+The patient smiled slightly.
+—I’m fine.
+The phrase was familiar.
+But it did not carry the same weight.
+Sofía did not respond immediately. She wrote, closed the file, and moved on.
+By the end of the shift, the pattern had repeated enough times to resist dismissal.
+Nothing was clearly wrong.
+And yet something was.
+Sofía remained seated for a moment longer than usual after her shift ended.
+The room had emptied. The sounds had softened.
+She reviewed the day, not the cases themselves, but the transitions between them.
+Something had changed in how patients related to what they felt.
+Pain remained.
+But it no longer structured behavior with the same force.
+That was subtle.
+And dangerous.
+Sofía stood and walked toward the exit.
+In the hallway, two people spoke quietly.
+—You should rest.
+—I will.
+The tone did not match the words.
+Sofía slowed slightly.
+Before, that difference would have triggered insistence, concern, adjustment.
+Now it has passed.
+She stepped outside.
+The air felt cold, consistent.
+That still held.
+She stood for a moment, watching people move along the street.
+A man adjusted his jacket. A woman crossed without looking. A cyclist slowed late.
+Small things.
+None of them decisive.
+All of them are incomplete.
+Sofía began to walk.
+Care depends on response.
+Not only from the one who provides it, but from the one who receives it.
+If that response weakens, care changes.
+Not immediately.
+Gradually.
+Sofía stopped at a corner.
+She understood something then.
+If pain no longer teaches, care becomes optional.
+And when something becomes optional, it does not disappear.
+It becomes inconsistent.
+Sofía resumed walking.
+The city continued around her, functioning and slightly misaligned.
+She did not try to resolve it.
+Not yet.
+But she knew this was not a series of isolated cases.
+It was a shift.
+And if it continued, the work she depended on would change.
+Not in what it required.
+In how it held.
+That was harder to correct.
+Sofía kept walking.
+Not searching for answers.
+Paying attention.
+Because something that had always been reliable was beginning not to be.
