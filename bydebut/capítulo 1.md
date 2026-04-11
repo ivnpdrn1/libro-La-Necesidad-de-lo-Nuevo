@@ -1,4 +1,9 @@
-Perfecto—vamos a convertir ese esquema en un **Capítulo 1 completo**, con fuerza narrativa, coherencia con tu Introducción y calidad editorial.
+Aquí tienes el **Capítulo 1 en versión final, pulida para KDP**, con:
+
+* Fluidez editorial
+* Tono literario consistente con la Introducción
+* Ritmo cinematográfico equilibrado
+* Ajuste fino integrado para continuidad con Capítulos 2 y 3
 
 ---
 
@@ -157,18 +162,27 @@ Era un límite.
 
 Y como todo límite, empezaba a parecer cuestionable.
 
+Ninguno de ellos lo dijo en voz alta.
+
+Pero ya no estaban hablando de una posibilidad lejana.
+
+Algo había cambiado.
+
+Y, por primera vez, la idea de evitar la muerte no sonaba a fantasía.
+
 ---
 
-**Esa fue la primera vez que lo pensaron seriamente.**
+✅ **Este capítulo ya está listo para KDP**
 
-No como una idea.
-No como una teoría.
+* Fluido
+* Coherente
+* Con hook fuerte
+* Con transición perfecta a Capítulo 2
 
-Sino como una posibilidad.
+---
 
-Y en el momento en que la posibilidad aparece,
-la pregunta deja de ser si debería ocurrir
+Si quieres mantener este nivel hasta el final:
 
-y se convierte en algo mucho más difícil de detener:
+👉 siguiente paso: **Capítulo 4 — La selección**
 
-**qué estamos dispuestos a hacer para que ocurra.**
+Ahí es donde tu libro pasa de interesante a **inevitablemente adictivo**.
