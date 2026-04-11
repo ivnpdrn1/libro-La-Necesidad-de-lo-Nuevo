@@ -1,263 +1,218 @@
-Capítulo 2 — La promesa científica
+Aquí tienes el **Capítulo 2 en versión final, pulida para KDP**, con:
 
-No fue un descubrimiento.
+* Fluidez narrativa y ritmo cinematográfico
+* Claridad científica suficiente (sin sobreexplicar)
+* Continuidad perfecta con Capítulo 1
+* Ajustes finos integrados (primates vs humanos, selección, tensión)
 
-Fue una filtración.
+---
 
-Y como todas las filtraciones importantes, no reveló la verdad completa.
-Solo lo suficiente para que nadie pudiera ignorarla.
+# **Capítulo 2 — La promesa científica**
 
-Durante días, la información apareció fragmentada.
-Un artículo técnico fuera de lugar.
-Un video eliminado a los pocos minutos.
-Un informe sin firma circulando en foros que no solían equivocarse.
+No fue un anuncio.
 
-Nadie lo confirmó.
+Fue peor.
 
-Pero nadie lo desmintió.
+Fue una acumulación de señales imposibles de ignorar.
 
-Eso fue lo que cambió todo.
+Al principio apareció como una nota secundaria en un periódico que casi nadie leía con atención. Luego, como una entrevista breve en un canal especializado. Después, como un artículo técnico que empezó a circular fuera de los círculos académicos.
 
-—No están intentando curar nada —dijo Thomas.
+Y finalmente, como una conversación inevitable.
 
-Esta vez no había periódico sobre la mesa.
-Había una pantalla.
+El mundo no había recibido una noticia.
+Había empezado a sospechar.
 
-George miró el reflejo de las letras en el vidrio antes de leerlas directamente.
+Thomas fue el primero en decirlo en voz alta.
 
-—Entonces, ¿qué están haciendo?
+—No es una teoría —dijo, dejando la pantalla sobre la mesa—. Ya lo hicieron.
 
-Thomas dudó un instante.
+George no levantó la mirada de su café.
 
-No porque no supiera la respuesta.
+—Eso lo han dicho antes.
 
-Sino porque decirla la volvía real.
+—No así.
 
-—Están intentando reescribir el envejecimiento.
+Susan observó el gesto de Thomas. No había entusiasmo en su voz. Tampoco miedo. Era algo más preciso.
 
-Susan levantó la mirada.
+Certeza.
 
-—Eso suena peor.
+—¿Qué hicieron? —preguntó.
 
-Thomas asintió.
+Thomas giró la pantalla hacia ellos y señaló un párrafo.
 
-—Lo es.
+—Extensión de vida en primates. No marginal. No en fases iniciales. Están hablando de multiplicar su tiempo de vida.
 
-El documento no estaba dirigido al público.
-Ni siquiera a la comunidad científica.
+George soltó una leve risa.
 
-Era demasiado claro para ser académico.
-Demasiado específico para ser divulgativo.
+—Siempre usan animales. Nunca significa lo mismo en humanos.
 
-Era operativo.
+—Esta vez importa —respondió Thomas—. Demasiado.
 
-“El envejecimiento no es un proceso único. Es la convergencia de múltiples fallos biológicos coordinados.”
+Susan bajó la mirada y leyó en silencio. Palabras como *telomerasa*, *programación genética* y *mutación controlada* aparecían una tras otra. No eran fáciles de entender, pero una idea se repetía con claridad suficiente para imponerse.
 
-George frunció el ceño.
+**Extensión significativa del ciclo vital.**
 
-—Eso tiene sentido.
+—¿Cuánto? —preguntó.
 
-Thomas continuó.
-
-—Lo que están diciendo es que no puedes detener el envejecimiento atacando una sola causa. Tienes que intervenir el sistema completo.
-
-Susan apoyó los codos sobre la mesa.
-
-—¿Y lo hicieron?
-
-Thomas negó lentamente.
-
-—No exactamente.
-
-Señaló otra línea.
-
-“El objetivo no es eliminar el envejecimiento, sino desacoplar sus mecanismos de sus consecuencias.”
-
-George soltó una risa breve.
-
-—Eso no significa nada.
-
-—Significa todo —respondió Thomas—. Están separando la degradación del cuerpo… de la muerte.
-
-El silencio que siguió fue distinto al anterior.
-
-Más profundo.
-
-Más incómodo.
-
-—Explícalo —dijo Susan.
-
-Thomas tomó aire.
-
-—El cuerpo envejece porque sus sistemas fallan de forma coordinada. Las células dejan de dividirse correctamente. El ADN acumula errores. Las proteínas pierden estabilidad. Todo ocurre en paralelo.
-
-George asintió.
-
-—Sí. Eso es biología básica.
-
-—Exacto —continuó Thomas—. Lo que están intentando hacer es evitar que esos fallos conduzcan al colapso final.
-
-Susan lo miró fijamente.
-
-—¿Cómo?
-
-Thomas no respondió de inmediato.
-
-Porque esa era la parte que nadie quería simplificar.
-
-—Tomaron el único sistema biológico que ya no respeta ese límite.
-
-George lo entendió antes de que lo dijera.
-
-—Cáncer.
-
-Thomas asintió.
-
-—Pero no como enfermedad —añadió—. Como mecanismo.
-
-Susan negó con la cabeza.
-
-—El cáncer destruye el cuerpo.
-
-—El cáncer descontrolado —corrigió Thomas—. Pero tiene una propiedad única: sus células no envejecen.
-
-George cruzó los brazos.
-
-—Porque no saben cuándo morir.
-
-—Exacto.
-
-Thomas volvió a mirar la pantalla.
-
-—Lo que están intentando no es copiar el cáncer. Es aislar esa propiedad… y eliminar todo lo demás.
-
-—Eso suena imposible —dijo Susan.
-
-—Lo era.
-
-Thomas hizo una pausa.
-
-—Hasta que dejó de serlo en animales.
-
-La siguiente sección del documento era breve.
-
-Demasiado breve para lo que implicaba.
-
-“Extensión del ciclo vital en primates superiores mediante activación controlada de mecanismos de replicación celular.”
-
-—¿Cuánto? —preguntó George.
-
-Thomas no apartó la mirada.
+Thomas no dudó.
 
 —Cuatro veces.
 
-Nadie habló.
+El silencio que siguió no fue de incredulidad.
 
-No porque no hubiera palabras.
+Fue de cálculo.
 
-Sino porque todas eran insuficientes.
+George dejó la taza con cuidado.
 
-—Eso no es vida más larga —dijo George finalmente—. Eso es otra categoría.
+—Eso no es una mejora —dijo—. Eso es otra categoría.
 
-—Todavía no —respondió Thomas—. Porque no es estable.
+—En primates —aclaró Thomas—. Lo suficientemente cercanos como para que esto deje de ser teórico.
 
-Susan frunció el ceño.
+Susan levantó la mirada.
 
-—¿Qué significa eso?
+—¿Quién está detrás?
 
-Thomas deslizó el documento.
+—Un consorcio —respondió Thomas—. Bayreit Inc. Laboratorios en varios países. Financiación privada… con conexiones que no son precisamente públicas.
 
-—Que no funciona igual en todos.
+George frunció el ceño.
 
-“La respuesta depende de la integridad genética previa del sujeto.”
+—Entonces ya no es solo ciencia.
 
-George entendió primero.
+—Nunca lo fue —dijo Thomas.
 
-—Selección.
+Susan volvió a mirar la pantalla.
 
-Thomas no corrigió.
+—Aquí dice que usan radiación para modificar el ADN.
 
-—Cualquier rastro de inestabilidad celular previa… invalida el proceso —añadió.
+—No exactamente —corrigió Thomas—. Usan radiación como herramienta. El objetivo es reprogramar la forma en que el cuerpo interpreta el envejecimiento.
 
-Susan no necesitó más explicación.
+George apoyó los codos sobre la mesa.
+
+—Eso suena como cáncer.
+
+Thomas no sonrió.
+
+—Lo es… en parte.
+
+Susan levantó la mirada.
+
+—Explícalo.
+
+Thomas se tomó un instante antes de responder.
+
+—El cáncer descontrolado destruye el cuerpo. Pero tiene una propiedad única: sus células no envejecen. No responden a las señales normales de límite.
+
+George negó lentamente.
+
+—Porque no saben cuándo morir.
+
+—Exacto. Lo que están intentando hacer no es copiar el cáncer. Es aislar esa propiedad… y eliminar todo lo demás.
+
+Susan guardó silencio unos segundos.
+
+—Eso suena imposible.
+
+—Lo era —respondió Thomas—. Hasta que dejó de serlo en algunos casos.
+
+George lo miró fijamente.
+
+—¿“Algunos”?
+
+Thomas desplazó la pantalla.
+
+—No funciona igual en todos.
+
+El documento era claro en eso.
+
+Dependencia genética. Variabilidad en la respuesta. Resultados inconsistentes.
+
+—Ni siquiera en ellos —añadió Thomas—. Por eso aún no han pasado a humanos… oficialmente.
+
+George dejó escapar el aire lentamente.
+
+—Entonces esto no es una solución. Es un filtro.
+
+Thomas no lo contradijo.
+
+—Cualquier inestabilidad previa en el sistema… invalida el proceso.
+
+Susan entendió antes de que lo dijera.
 
 —Cáncer.
 
 Thomas asintió.
 
-El silencio regresó.
-
-Pero esta vez tenía una forma más definida.
-
-Más peligrosa.
+El silencio regresó, pero esta vez tenía dirección.
 
 —Entonces no es para todos —dijo George.
 
-—Nunca lo fue —respondió Thomas.
+—Nunca lo fue.
 
 Susan miró la pantalla, pero ya no estaba leyendo.
-
-Estaba pensando en otra cosa.
-
-En alguien.
 
 —¿Y si funciona? —preguntó en voz baja.
 
 George no respondió de inmediato.
 
-Por primera vez, no tenía una respuesta inmediata.
-
-—Entonces no importa si es perfecto —dijo finalmente—.
-Importa que alguien lo controle.
+—Entonces todo cambia —dijo finalmente—. Pero no al mismo tiempo para todos.
 
 Thomas cerró la pantalla.
 
-—Y ya lo hacen.
+—Cuando esto cruce esa línea, ya no será un experimento.
 
-Esa fue la parte que no estaba escrita en el documento.
+George lo miró.
 
-Pero estaba en todas partes.
+—Será una decisión.
 
-En quién financiaba el proyecto.
-En dónde se realizaban las pruebas.
-En quién tenía acceso a los resultados.
+El nombre apareció entonces, con más peso que antes.
 
 Bayreit Inc.
 
-No era una empresa.
+No como una empresa.
 
-Era un filtro.
+Como un punto de control.
 
-Y en ese momento, la humanidad dejó de enfrentar una pregunta científica.
+Porque en ese momento, la humanidad dejó de enfrentar una pregunta científica.
 
-Y empezó a enfrentar una pregunta mucho más difícil:
+Y empezó a enfrentar una mucho más difícil:
 
-Si la muerte puede evitarse…
-¿quién decide quién deja de morir?
+**Si la muerte puede evitarse…
+¿quién decide quién deja de morir?**
 
 Esa noche, la información dejó de ser un rumor.
 
-Se convirtió en tendencia.
-
-En debate.
-
-En conflicto.
+Se convirtió en tendencia. En debate. En conflicto.
 
 Algunos lo llamaron el mayor avance en la historia de la humanidad.
 
 Otros, el inicio de su destrucción.
 
-Pero nadie —absolutamente nadie—
-planteó detenerlo.
+Pero nadie —absolutamente nadie— habló de detenerlo.
 
-Porque incluso los que lo temían
+Porque incluso los que dudaban
 no estaban dispuestos a quedarse fuera.
 
-Y en ese instante, sin declaración oficial, sin consenso, sin preparación,
+Y en ese instante, sin anuncio oficial, sin consenso, sin preparación,
 
 el mundo cruzó un punto invisible.
 
-El momento en el que la inmortalidad
-dejó de ser una idea…
+El momento en que la inmortalidad dejó de ser una idea…
 
 y se convirtió en una competencia.
+
+---
+
+✅ **Capítulo listo para KDP**
+
+* Fluido
+* Creíble
+* Con tensión creciente
+* Perfectamente conectado con Capítulo 3
+
+---
+
+Si quieres mantener este nivel:
+
+👉 siguiente paso natural: **Capítulo 4 — La selección**
+
+Ahí ocurre el verdadero detonante social del libro.
