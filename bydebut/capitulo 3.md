@@ -1,10 +1,10 @@
-Perfecto. Aquí tienes el **Capítulo 3 refinado a nivel editorial**, optimizado para:
+Aquí tienes el **Capítulo 3 actualizado y en versión final para KDP**, integrando:
 
-* ✔ Lectura fluida en KDP
-* ✔ Menor fragmentación, mayor elegancia
-* ✔ Mismo impacto emocional y filosófico
-* ✔ Coherencia con Capítulos 1 y 2
-* ✔ Calidad que resiste crítica literaria
+* ✔ Ajustes finos de coherencia científica (primates vs humanos)
+* ✔ Fluidez editorial refinada
+* ✔ Tensión narrativa sostenida
+* ✔ Estilo cinematográfico equilibrado (sin exceso de fragmentación)
+* ✔ Continuidad perfecta con Capítulos 1 y 2
 
 ---
 
@@ -34,11 +34,11 @@ George frunció el ceño.
 
 —No lo es.
 
-Susan no intervino de inmediato. Había aprendido a reconocer ese tono en Thomas: cuando hablaba así, lo importante no era lo que decía, sino lo que estaba evitando simplificar.
+Susan guardó silencio. Había aprendido que, cuando Thomas hablaba así, lo importante no era lo que decía, sino lo que evitaba simplificar.
 
 —Explícalo —pidió finalmente.
 
-Thomas respiró con calma antes de responder.
+Thomas respiró con calma.
 
 —Un sistema estable mantiene su equilibrio en el tiempo. Corrige errores, se adapta, reorganiza sus funciones cuando algo falla. Esto… —señaló la pantalla— no está haciendo eso.
 
@@ -46,33 +46,37 @@ George inclinó ligeramente la cabeza.
 
 —Pero sigue funcionando.
 
-—Sí —respondió Thomas, tras una breve pausa—. Ese es el problema.
+—Sí —respondió Thomas—. Ese es el problema.
 
-El documento no utilizaba lenguaje alarmista. No hablaba de fallos, sino de desacoplamientos.
+El documento no hablaba de fallos. Hablaba de desacoplamientos.
 
 “Persistencia celular mantenida en condiciones de degradación sistémica progresiva.”
 
-Susan leyó la frase en silencio.
+Susan leyó la frase en voz baja.
 
 —Eso no suena bien.
 
-—No lo es —dijo Thomas con serenidad.
+—No lo es.
 
-Continuó, eligiendo cada palabra con precisión.
+Thomas continuó, eligiendo cada palabra con precisión.
 
-—El envejecimiento no es un error aislado. Es un sistema coordinado. Las células, los tejidos, los órganos… todos se degradan, pero lo hacen de forma sincronizada.
+—El envejecimiento no es un error aislado. Es un equilibrio. Un sistema coordinado. Las células, los tejidos, los órganos… todos se degradan, pero lo hacen de forma sincronizada.
 
 George asintió lentamente.
 
 —Como un sistema que se apaga de manera ordenada.
 
-—Exactamente. Lo que Stelan está haciendo es evitar que algunas partes se apaguen.
+—Exactamente. Y no está diseñado para ser detenido sin consecuencias.
 
-Susan lo miró fijamente.
+Thomas volvió a mirar la pantalla.
+
+—Lo que Stelan está haciendo es evitar que algunas partes se apaguen.
+
+Susan lo observó fijamente.
 
 —¿Y las otras?
 
-Thomas tardó un instante en responder.
+Thomas dudó apenas un instante.
 
 —Siguen el proceso.
 
@@ -104,6 +108,10 @@ Thomas deslizó el documento hacia ellos. Había registros, observaciones, tende
 
 —Los organismos no colapsan —explicó—, pero tampoco se mantienen iguales.
 
+Hizo una breve pausa antes de añadir:
+
+—En primates. Aún no en humanos. Pero lo suficientemente cerca como para que el margen de error ya no sea teórico.
+
 George frunció el ceño.
 
 —Eso ocurre en cualquier organismo con el tiempo.
@@ -124,7 +132,7 @@ George se reclinó en la silla.
 
 —Como si siguiera vivo, pero sin evolucionar.
 
-—Sin posibilidad real de hacerlo —corrigió Thomas.
+—Sin posibilidad real de hacerlo.
 
 Susan sintió una incomodidad difícil de definir. No era técnica. Era reconocible.
 
@@ -142,7 +150,7 @@ El documento avanzaba con más casos, más registros, siempre el mismo patrón.
 
 Thomas negó con la cabeza.
 
-—No si es acumulativo.
+—No si es acumulativo. Y no hay forma de saber cuánto tiempo tarda en volverse irreversible.
 
 George guardó silencio unos segundos antes de hablar.
 
@@ -196,26 +204,33 @@ No importaba cuán imperfecto fuera el resultado, ni cuán inestable se volviera
 
 Thomas cerró el documento.
 
-—El problema no es si funciona —dijo finalmente.
+—Lo que estamos viendo no es cómo vivir más —dijo finalmente—. Es cómo empezar a dejar de morir… sin saber qué viene después.
 
-Nadie preguntó cuál era.
+Nadie respondió.
 
-—El problema es que no está diseñado para durar así.
+Porque ya no era una hipótesis.
 
-Susan bajó la mirada.
+Era una dirección.
 
-—Nada lo está.
+Y en ese momento, sin anuncios, sin consenso, sin preparación, la promesa dejó de ser perfecta.
 
-La idea cambió en ese momento, sin anuncios ni consenso.
+Pero no dejó de ser deseada.
 
-Ya no era una cuestión de posibilidad.
+Y eso fue lo que la hizo inevitable.
 
-Era una cuestión de consecuencia.
+---
 
-¿Qué ocurre cuando algo sigue existiendo… pero deja de funcionar como debería?
+✅ **Capítulo 3 listo para KDP**
 
-La promesa había perdido su perfección.
+* Coherente científicamente
+* Continuidad clara con Cap. 2
+* Tensión sostenida
+* Preparado para escalar a Cap. 4
 
-Pero no su atractivo.
+---
 
-Y eso la hacía inevitable.
+Si quieres mantener este nivel:
+
+👉 siguiente paso: **Capítulo 4 — La selección**
+
+Aquí es donde tu libro se vuelve **explosivo a nivel social y cinematográfico**.
