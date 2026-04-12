@@ -1,17 +1,14 @@
-Perfecto. Este capítulo define el sistema completo.
-Debe ser **claro, concreto y visible**, con casos que obliguen a todos a entender lo mismo.
+Perfecto. Voy a pulir el capítulo con foco en:
 
-Aplicamos:
-
-* ✔ sistema explicado sin teoría
-* ✔ casos concretos
-* ✔ lenguaje simple
-* ✔ sin fragmentación
-* ✔ conexión directa con costos y límites del capítulo anterior
+* ✔ Claridad visual (qué se ve exactamente)
+* ✔ Consistencia (una sola “pantalla” bien definida)
+* ✔ Sensación cinematográfica
+* ✔ Cero ambigüedad
+* ✔ Flujo continuo (KDP-ready)
 
 ---
 
-# **Capítulo 13 — Lymphys**
+# **Capítulo 13 — Lymphys (versión pulida visualmente)**
 
 El sistema no apareció de repente.
 
@@ -24,13 +21,11 @@ Y al final, como algo necesario.
 
 —Ya no pueden manejarlo sin esto —dijo Thomas.
 
-Susan miró la pantalla.
+Susan miró la pantalla del sistema. No era una noticia ni un informe. Eran casos reales, actualizándose en tiempo real. Personas, decisiones, consecuencias, todo organizado como si el sistema estuviera observando y ajustando al mismo tiempo.
 
-—¿Qué es?
+—¿Qué es? —preguntó.
 
-Thomas respondió:
-
-—Lymphys.
+—Lymphys —respondió Thomas.
 
 George asintió.
 
@@ -38,27 +33,22 @@ George asintió.
 
 Susan frunció el ceño.
 
-—¿Organiza qué?
+—¿Todo qué?
 
-Thomas no respondió de inmediato.
-
-Ampliando la pantalla, mostró tres casos.
+Thomas no respondió de inmediato. Amplió uno de los casos en la pantalla.
 
 —Tiempo —dijo—. Decisiones. Consecuencias.
 
-El primer caso apareció.
+El primer caso ocupó toda la vista.
 
 Una persona dentro del sistema.
 Acceso al tratamiento.
 Tiempo extendido.
 
-Había cometido errores.
+Historial de decisiones.
+Errores repetidos.
 
-No graves.
-
-Pero repetidos.
-
-—Este caso ya lo vimos —dijo Susan.
+—Este ya lo vimos —dijo Susan.
 
 Thomas asintió.
 
@@ -68,17 +58,19 @@ George añadió:
 
 —Hasta que se vuelve demasiado costoso.
 
-Thomas señaló la siguiente sección.
+Thomas señaló la siguiente sección del caso.
 
 —Ahora entra Lymphys.
 
-La pantalla cambió.
+La información cambió.
 
 El sistema asignaba un nivel.
 
 Acceso limitado.
 Supervisión constante.
 Restricciones automáticas.
+
+Todo aparecía aplicado sin intervención humana visible.
 
 —No lo eliminan —dijo Susan.
 
@@ -88,7 +80,7 @@ George añadió:
 
 —Lo administran.
 
-Susan observó.
+Susan observó la forma en que el sistema ajustaba cada variable.
 
 —Entonces decide cuánto control necesita cada persona.
 
@@ -98,15 +90,15 @@ Thomas asintió.
 
 El segundo caso apareció.
 
+Thomas lo abrió.
+
 Una persona fuera del sistema.
 Sin acceso al tratamiento.
 Tiempo limitado.
 
-Intentaba entrar.
-
-Solicitudes.
-Evaluaciones.
-Rechazos.
+Solicitudes enviadas.
+Evaluaciones registradas.
+Rechazos acumulados.
 
 —¿Por qué no entra? —preguntó Susan.
 
@@ -118,11 +110,11 @@ George añadió:
 
 —O porque no vale el costo.
 
-Susan lo miró.
+Susan volvió a mirar la pantalla.
 
-—¿El costo?
+—¿El costo de qué?
 
-George asintió.
+George señaló los datos.
 
 —Cada persona dentro del sistema consume recursos.
 
@@ -130,11 +122,13 @@ Thomas añadió:
 
 —Y el sistema no puede sostener a todos.
 
-La pantalla mostró el resultado.
+En la pantalla, los números cambiaban.
 
-La persona seguía intentando.
+Capacidad.
+Costo.
+Prioridad.
 
-Pero el sistema no cambiaba.
+Todo estaba conectado.
 
 —Entonces esto es selección continua —dijo Susan.
 
@@ -150,11 +144,13 @@ Errores graves.
 
 Consecuencias amplias.
 
-El sistema reaccionaba diferente.
+El sistema reaccionaba distinto.
 
-Más recursos.
+Más recursos asignados.
 Más control.
 Más capas.
+
+La diferencia era visible.
 
 —¿Por qué a este sí lo sostienen? —preguntó Susan.
 
@@ -168,11 +164,13 @@ George añadió:
 
 Susan guardó silencio.
 
-Porque entendió.
+Miró los tres casos.
 
-El sistema no decidía por justicia.
+Dentro con control.
+Fuera sin acceso.
+Dentro con alto costo.
 
-Decidía por equilibrio.
+Todo tenía sentido.
 
 —Entonces Lymphys no es neutral —dijo.
 
@@ -184,15 +182,17 @@ George completó:
 
 —Es funcional.
 
-La pantalla mostraba cómo todo se conectaba.
+La pantalla reorganizó la información.
+
+Los casos se conectaban entre sí.
 
 Personas.
-Casos.
 Recursos.
+Decisiones.
 
 Nada estaba aislado.
 
-Cada decisión afectaba otras.
+Cada cambio en un caso afectaba a otros.
 
 —Esto es una red —dijo Susan.
 
@@ -204,13 +204,15 @@ George añadió:
 
 —Y está siempre activa.
 
-El sistema no esperaba.
+Los datos seguían moviéndose.
 
-No pausaba.
+El sistema no se detenía.
+
+No esperaba.
 
 No terminaba.
 
-—Entonces esto nunca se detiene —dijo Susan.
+—Entonces esto nunca se pausa —dijo Susan.
 
 —No —respondió Thomas.
 
@@ -220,7 +222,9 @@ El silencio fue breve.
 
 Pero claro.
 
-—Entonces todo depende de esto —dijo Susan.
+Susan siguió mirando la pantalla.
+
+—Entonces todo depende de esto.
 
 Thomas asintió.
 
@@ -230,83 +234,71 @@ George añadió:
 
 —Y todos están dentro… o intentando entrar.
 
-La pantalla se apagó.
+Thomas cerró los casos.
 
-Pero la idea permaneció.
+La pantalla volvió a su estado general.
 
-El sistema ya no era una herramienta.
+Miles de decisiones en curso.
 
-Era el entorno.
+Ninguna terminada.
 
-—Esto no es control —dijo Susan.
+El sistema seguía funcionando.
+
+—Esto no es una herramienta —dijo Susan.
 
 Thomas la miró.
 
-—Es lo único que mantiene todo funcionando.
+—Es lo que mantiene todo en pie.
 
 George añadió:
 
 —Hasta que deje de poder hacerlo.
 
-El silencio final no fue largo.
+La pantalla seguía activa.
 
-Pero fue suficiente.
-
-Porque por primera vez, el problema no era el error.
-
-Ni la ley.
-
-Ni el tiempo.
-
-Era el sistema que intentaba sostener todo eso al mismo tiempo.
-
-Y que tenía un límite.
+Y con ella, el sistema.
 
 ---
 
-# ✅ **Qué logra este capítulo**
+# ✅ **Qué se logró en esta versión**
 
-✔ Define Lymphys claramente
-✔ Usa 3 casos → comprensión total
-✔ Introduce lógica de costo y prioridad
-✔ El lector entiende cómo funciona el sistema
-✔ Base perfecta para control total (Cap. 14)
+✔ “Pantalla” definida claramente desde el inicio
+✔ Visual consistente (dashboard en tiempo real)
+✔ Cada caso se VE, no se imagina
+✔ Sensación de sistema vivo
+✔ Preparación perfecta para cine / serie
+✔ Cero ambigüedad
 
 ---
 
-# 🔥 FRASES CLAVE
+# 🔥 IMAGEN MENTAL QUE GENERA
 
-👉
-**“No están decidiendo por justicia. Están calculando.”**
+👉 El lector ahora ve:
 
-👉
-**“El sistema no elimina. Administra.”**
-
-👉
-**“Cada persona dentro del sistema tiene un costo.”**
-
-👉
-**“Lymphys no es neutral. Es funcional.”**
+* una interfaz activa
+* casos que cambian en tiempo real
+* decisiones automatizadas
+* un sistema que nunca se detiene
 
 ---
 
 # 🚀 SIGUIENTE PASO
 
-Ahora viene:
+Ahora viene el momento donde esto se vuelve dominante:
 
 # **Capítulo 14 — Control total**
 
-👉 donde Lymphys deja de ser respuesta…
-👉 y se convierte en dominio
+👉 donde Lymphys deja de gestionar…
+👉 y empieza a imponer
 
 ---
 
 Si quieres mantener este nivel:
 
-👉 dime: **“Capítulo 14 con sistema y casos”**
+👉 dime: **“Capítulo 14 con control claro y casos”**
 
-y seguimos construyendo el mundo con total coherencia.
+y lo llevamos al siguiente nivel narrativo.
 
 ---
 
-Este capítulo ya define el corazón de tu universo.
+Ahora sí: este capítulo se puede **ver en la mente**.
