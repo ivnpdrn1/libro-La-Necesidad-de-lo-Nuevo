@@ -1,35 +1,27 @@
-Exacto. Este es el salto a **claridad total y control del mensaje**:
+Perfecto. Este es un ajuste **clave de credibilidad**:
 
-> 👉 *no dejar que cada lector invente su versión*
-> 👉 *darle un caso concreto que obligue a todos a entender lo mismo*
+👉 ya no solo dices que el sistema crece
+👉 ahora introduces el límite real: **el costo**
 
-Lo que necesitas es un patrón consistente:
+Y eso hace el mundo:
 
----
-
-# 🧠 **REGLA PARA TODO EL LIBRO (A PARTIR DE AHORA)**
-
-## 👉 **Cada concepto clave = 1 caso claro**
-
-Estructura fija:
-
-1. **Caso simple (persona concreta)**
-2. **Cómo funcionaba antes**
-3. **Cómo funciona ahora**
-4. **Qué cambia (consecuencia inevitable)**
-
-👉 Sin esto, el lector interpreta
-👉 Con esto, el lector entiende igual que tú
+* más real
+* más debatible
+* más sólido
 
 ---
 
-# 🎯 APLICADO A CAPÍTULO 12
+Voy a integrar esto en el **Capítulo 12**, manteniendo:
 
-Ahora lo reescribo con **caso integrado + sistema claro + sin líneas + simple**
+* ✔ formato continuo (sin líneas)
+* ✔ caso claro
+* ✔ lenguaje simple
+* ✔ sin teoría económica pesada
+* ✔ impacto inmediato
 
 ---
 
-# **Capítulo 12 — El infierno lógico (con caso claro)**
+# **Capítulo 12 — El infierno lógico (versión final con límite de costo)**
 
 La diferencia no fue inmediata.
 
@@ -173,33 +165,37 @@ Nada se eliminaba.
 
 Todo se acumulaba.
 
-—Esto no es un caso —dijo Susan.
+Pero algo más aparecía.
 
-Thomas respondió:
+Thomas amplió otra sección.
 
-—Es el modelo.
+Costos.
 
-George asintió.
+Recursos.
 
-—Se repite.
+Tiempo operativo.
 
-El silencio volvió.
+—Esto no puede crecer sin límite —dijo.
 
-Más claro.
+Susan lo miró.
 
-Más inevitable.
+—¿Por qué?
 
-—Entonces esto no tiene final —dijo Susan.
+George respondió:
 
-—No —respondió Thomas.
+—Porque cuesta.
 
-—Porque nadie sale —añadió George.
+Thomas añadió:
 
-La frase quedó.
+—Cada capa necesita gente, control, tecnología.
 
-Porque explicaba todo.
+George continuó:
 
-—Antes el sistema se limpiaba —dijo Susan.
+—Y todo eso tiene un precio.
+
+Susan observó la pantalla.
+
+—Entonces hay un límite.
 
 Thomas asintió.
 
@@ -207,82 +203,138 @@ Thomas asintió.
 
 George añadió:
 
-—Ahora no.
+—No un límite moral.
 
-Susan levantó la mirada.
+Hizo una pausa.
 
-—Entonces todo se queda.
+—Un límite económico.
 
-Nadie la corrigió.
+El silencio fue claro.
 
-El caso seguía.
+—Entonces llega un punto… —dijo Susan.
 
-El sistema también.
+Thomas completó:
 
-—Esto no se rompe —dijo Susan.
-
-—No —respondió Thomas.
+—En que no puedes seguir añadiendo capas.
 
 George añadió:
 
-—Sigue.
+—Y tienes que decidir qué problemas sí puedes sostener.
+
+Susan frunció el ceño.
+
+—¿Y los que no?
+
+Nadie respondió de inmediato.
+
+Porque la respuesta era evidente.
+
+—Se quedan sin control suficiente —dijo Thomas.
+
+George añadió:
+
+—O se dejan pasar.
+
+La pantalla mostraba la diferencia.
+
+Algunos casos con múltiples capas.
+
+Otros con menos.
+
+No porque fueran distintos.
+
+Porque el sistema no podía sostenerlos igual.
+
+—Entonces no todos los errores se manejan igual —dijo Susan.
+
+—No —respondió Thomas.
+
+—Depende de cuánto cuesta sostenerlos —añadió George.
+
+El silencio volvió.
+
+Más pesado.
+
+Más real.
+
+—Entonces esto no es solo un problema lógico —dijo Susan.
+
+Thomas negó.
+
+—Es un problema de recursos.
+
+George añadió:
+
+—Y de prioridades.
+
+La frase quedó.
+
+Porque explicaba todo.
+
+—Entonces el sistema no solo acumula errores —dijo Susan.
+
+—También decide cuáles puede pagar —respondió Thomas.
+
+George completó:
+
+—Y cuáles no.
 
 El silencio final no fue largo.
 
 Pero fue suficiente.
 
-Porque por primera vez, el problema no era el error.
+Porque por primera vez, el problema no era solo que el error no terminaba.
 
-Era que el error no terminaba.
+Era que el sistema tenía que elegir hasta dónde sostenerlo.
 
-Y que el sistema, en lugar de eliminarlo…
+Y todo lo que quedara fuera de ese límite…
 
-se estaba construyendo encima de él.
-
----
-
-# ✅ **Qué cambia con esta versión**
-
-✔ El lector ve un caso completo
-✔ Entiende el ciclo sin pensar
-✔ No hay ambigüedad
-✔ Todos llegan a la misma conclusión
-✔ El concepto “infierno lógico” se vuelve concreto
+también seguiría existiendo.
 
 ---
 
-# 🔥 CLAVE QUE ACABAS DE DEFINIR (MUY IMPORTANTE)
+# ✅ **Qué mejora este ajuste**
 
-Tu libro ahora funciona así:
-
-👉 Idea → Caso → Consecuencia
-
-NO:
-
-👉 Idea → Explicación → Interpretación
+✔ Introduce límite real → costos
+✔ Hace el sistema creíble
+✔ Evita “crecimiento infinito irreal”
+✔ Añade nueva capa de conflicto
+✔ Prepara decisiones duras en capítulos siguientes
 
 ---
 
-# 🚀 SIGUIENTE PASO (CRÍTICO)
+# 🔥 FRASES CLAVE
 
-Ahora esto conecta perfecto con:
+👉
+**“No hay un límite moral. Hay un límite económico.”**
+
+👉
+**“El sistema no solo acumula errores. Decide cuáles puede pagar.”**
+
+👉
+**“Cuando no puedes añadir más capas… el problema sigue igual.”**
+
+---
+
+# 🚀 SIGUIENTE PASO
+
+Esto conecta directo con:
 
 # **Capítulo 13 — Lymphys**
 
-👉 donde este comportamiento se vuelve sistema global diseñado
+👉 donde ese límite se convierte en diseño del sistema
 
 ---
 
 Si quieres hacerlo bien:
 
-👉 dime: **“Capítulo 13 con casos claros sin líneas”**
+👉 dime: **“Capítulo 13 con sistema claro y casos”**
 
-y construimos el núcleo del sistema con este mismo estándar.
+y construimos el núcleo del mundo con total coherencia.
 
 ---
 
-Esto que acabas de hacer es lo que diferencia:
+Este ajuste hace algo clave:
 
-📖 un libro interesante
-de
-📖 un libro que todos entienden igual y recomiendan.
+👉 el sistema ya no es solo inevitable…
+👉 ahora también es **finito y limitado**, lo que lo hace más real y más peligroso.
